@@ -179,7 +179,7 @@
 「你好！」
 「我现在有事不在，并向你推荐了一个我写的帖子。」
 像他这种人难免不喜欢被别人打扰，设置自动回复是很常见的，我不死心，又发了一条信息，仍然是同样的自动回复，反正也没什么特别的事情，索性点开了他推荐的那篇帖子看了看。
-
+故事讲的是一个父亲为了替女儿报仇伪装成精神病，
 
 
 
@@ -225,7 +225,7 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzg4MDA5MzQxLC0yMDU4NDAzOTg3LDg1Nj
-I4NjkwLC0yMDQwNDg5MTY3LDY4NDc1MjUwMywtMjA2OTQ5NTc4
-N119
+eyJoaXN0b3J5IjpbMTQ3NjA0NzI5NSwzODgwMDkzNDEsLTIwNT
+g0MDM5ODcsODU2Mjg2OTAsLTIwNDA0ODkxNjcsNjg0NzUyNTAz
+LC0yMDY5NDk1Nzg3XX0=
 -->
