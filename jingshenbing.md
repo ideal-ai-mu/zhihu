@@ -204,7 +204,8 @@
 “虽然我恨他，但他却是林雪的父亲，况且最主要的是，如果精神病院死人，对我们这个地下贩卖机构会有很大影响，怕被盯上，你知道我们希望风评浪静。我又不是个傻子。”江真嘲讽说继续道，“视频了不是很清楚么，是慕涛的第二人格【慕声】杀的吗？”
 “如你所说，【慕声】本来是个懦弱的人，怎么会做这样的事？这中间你没做其他的事？”我望着林海，看出他的迟疑，“事到如今，我想你也很好奇林海真正是因什么而死吧。”
 “那天我跟林海撕破了脸，互相不在隐瞒，赤裸相待，我发现他的精神出了极大的异常，似乎在崩溃的边缘，便悄悄跟他说，当年林雪跳楼的造谣者就在我们医院，他就是慕涛。当然我只是随口乱说的。”江真又继续道，“我知道一个精神病人很容易抓住最后一根稻草，而我给林海提供了那个稻草——慕涛，好让他把矛头指向慕涛。之后的事，我是真没想到。”
-听到这我终于明白了，当时从【慕声】口中所说的事情，原来当时林海对【慕声】的质问‘为什么要那么做’是这个江真随口的乱说，他
+听到这我终于明白了，当时从【慕声】口中所说的事情，原来当时林海对【慕声】的质问‘为什么要那么做’是这个江真随口的乱说，似乎一切都已经明了了。
+当处在精神崩溃边缘的林海听到林雪的死是因为慕涛的造谣，便去
 
 
 
@@ -250,10 +251,10 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzNjQ3MzYyNzcsLTE2NDMwNDE1NTUsLT
-EyMTQ2MjE2MDksMTk5MDExMzYzOSwtMjAzOTgwOTA0OCwtNDI4
-NDI1NjM2LC0xNTU5Njk1MDk0LC03Mzg1Mzg1NjksNjI4MjkyOT
-AsMTg2OTg5ODI4MiwtOTE4MzQxNDU3LC0xMzYxOTI3MTIsMzg4
-MDA5MzQxLC0yMDU4NDAzOTg3LDg1NjI4NjkwLC0yMDQwNDg5MT
-Y3LDY4NDc1MjUwMywtMjA2OTQ5NTc4N119
+eyJoaXN0b3J5IjpbLTc3MzIzMDAyNiwtMTY0MzA0MTU1NSwtMT
+IxNDYyMTYwOSwxOTkwMTEzNjM5LC0yMDM5ODA5MDQ4LC00Mjg0
+MjU2MzYsLTE1NTk2OTUwOTQsLTczODUzODU2OSw2MjgyOTI5MC
+wxODY5ODk4MjgyLC05MTgzNDE0NTcsLTEzNjE5MjcxMiwzODgw
+MDkzNDEsLTIwNTg0MDM5ODcsODU2Mjg2OTAsLTIwNDA0ODkxNj
+csNjg0NzUyNTAzLC0yMDY5NDk1Nzg3XX0=
 -->
