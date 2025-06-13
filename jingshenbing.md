@@ -134,7 +134,7 @@
 想要了解事情的真相，必须要了解事情经过，我现在很想知道【慕声】杀人的前因后果。
 我看得出他的担忧，随即我握住他的颤抖的手，「把你知道的说出来，我想我可以帮到你。」
 【慕声】看了看我，微微的点点了头，说了起来。
-「那天，林海向疯子一样跑到我的房间，奇奇怪怪的问我，为什么要这样做。我很害怕，他不停地拽着我，我就往外跑，他就追着我，他打我」
+「那天，林海向疯子一样跑到我的房间，奇奇怪怪的问我，为什么要这样做。我很害怕，他不停地拽着我，我就往外跑，他就追着我，他打我，我就跟他扭打在地上，慌乱间我摸到他身上的东西，我就往他身上扎。然后不知道怎么回事，等我反应过来，他已经」
 
 【慕声】开始语无伦次，大致的事情经过我已经了解，不管【慕声】是否说了谎，但是有几个有用的信息值得进一步调查。
 我安抚了一会【慕声】，并安排其他人照看他，随后跟小李走出了审讯室。
@@ -253,10 +253,10 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExNDA4MDk2NDMsMTk5MDExMzYzOSwtMj
-AzOTgwOTA0OCwtNDI4NDI1NjM2LC0xNTU5Njk1MDk0LC03Mzg1
-Mzg1NjksNjI4MjkyOTAsMTg2OTg5ODI4MiwtOTE4MzQxNDU3LC
-0xMzYxOTI3MTIsMzg4MDA5MzQxLC0yMDU4NDAzOTg3LDg1NjI4
-NjkwLC0yMDQwNDg5MTY3LDY4NDc1MjUwMywtMjA2OTQ5NTc4N1
-19
+eyJoaXN0b3J5IjpbNzg3ODIwMTM3LDE5OTAxMTM2MzksLTIwMz
+k4MDkwNDgsLTQyODQyNTYzNiwtMTU1OTY5NTA5NCwtNzM4NTM4
+NTY5LDYyODI5MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1NywtMT
+M2MTkyNzEyLDM4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NTYyODY5
+MCwtMjA0MDQ4OTE2Nyw2ODQ3NTI1MDMsLTIwNjk0OTU3ODddfQ
+==
 -->
