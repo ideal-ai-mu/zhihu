@@ -57,6 +57,8 @@
 安排完小李过后，我匆匆忙忙向精神病院赶去，好赶在他们下班前去见一见那个江真。
 当我第一眼见到江真时，这个人我好像在哪见过，似曾相识，「江医生，你好啊。」
 「陈警官请坐！」
+
+压抑感
 他的办公室不大，桌面上整齐地摆放着几本文件和一杯温热的咖啡。窗外阳光透过百叶窗洒进来，光线柔和地照在他身上，显得他更加沉稳。坐在他对面，我不由自主地仔细打量了他一番。
 他带着黑色边框的眼镜，眼镜的边缘略显古朴，给他增添了一种书卷气和温文尔雅的气质，看得出是一个有着质朴气息、带有涵养的人。然而就是这样一个人，我越看越是熟悉。
 「江医生，我们是不是曾经见过？」我还是把我的怀疑问了出来，但像我们这样的人见过形形色色的人太多了，难免遇到长相相近的人也不足为奇。
@@ -229,7 +231,7 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTkxODM0MTQ1NywtMTM2MTkyNzEyLDM4OD
-AwOTM0MSwtMjA1ODQwMzk4Nyw4NTYyODY5MCwtMjA0MDQ4OTE2
-Nyw2ODQ3NTI1MDMsLTIwNjk0OTU3ODddfQ==
+eyJoaXN0b3J5IjpbMTg2OTg5ODI4MiwtOTE4MzQxNDU3LC0xMz
+YxOTI3MTIsMzg4MDA5MzQxLC0yMDU4NDAzOTg3LDg1NjI4Njkw
+LC0yMDQwNDg5MTY3LDY4NDc1MjUwMywtMjA2OTQ5NTc4N119
 -->
