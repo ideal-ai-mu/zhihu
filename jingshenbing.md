@@ -205,8 +205,7 @@
 “如你所说，【慕声】本来是个懦弱的人，怎么会做这样的事？这中间你没做其他的事？”我望着林海，看出他的迟疑，“事到如今，我想你也很好奇林海真正是因什么而死吧。”
 “那天我跟林海撕破了脸，互相不在隐瞒，赤裸相待，我发现他的精神出了极大的异常，似乎在崩溃的边缘，便悄悄跟他说，当年林雪跳楼的造谣者就在我们医院，他就是慕涛。当然我只是随口乱说的。”江真又继续道，“我知道一个精神病人很容易抓住最后一根稻草，而我给林海提供了那个稻草——慕涛，好让他把矛头指向慕涛。之后的事，我是真没想到。”
 听到这我终于明白了，当时从【慕声】口中所说的事情，原来当时林海对【慕声】的质问‘为什么要那么做’是这个江真随口的乱说，似乎一切都已经明了了。
-当处在精神崩溃边缘的林海听到林雪的死是因为慕涛的造谣，便去找慕涛，但是此时是【慕声】的人格处在主导地位，慕声不知道发生了什么，被林海殴打，慌乱间抓到林海身上本来用于杀jia
-
+当处在精神崩溃边缘的林海听到林雪的死是因为慕涛的造谣，便去找慕涛，但是此时是【慕声】的人格处在主导地位，慕声不知道发生了什么，被林海殴打，慌乱间抓到林海身上本来用于杀江真的水果刀，这时【慕声】心中那份勇猛的幻想，让懦弱的他鼓起了勇气对林海反抗
 
 
 
@@ -251,10 +250,10 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzgyNDQwODk4LC0xNjQzMDQxNTU1LC0xMj
-E0NjIxNjA5LDE5OTAxMTM2MzksLTIwMzk4MDkwNDgsLTQyODQy
-NTYzNiwtMTU1OTY5NTA5NCwtNzM4NTM4NTY5LDYyODI5MjkwLD
-E4Njk4OTgyODIsLTkxODM0MTQ1NywtMTM2MTkyNzEyLDM4ODAw
-OTM0MSwtMjA1ODQwMzk4Nyw4NTYyODY5MCwtMjA0MDQ4OTE2Ny
-w2ODQ3NTI1MDMsLTIwNjk0OTU3ODddfQ==
+eyJoaXN0b3J5IjpbLTE2MDc5OTgzMSwtMTY0MzA0MTU1NSwtMT
+IxNDYyMTYwOSwxOTkwMTEzNjM5LC0yMDM5ODA5MDQ4LC00Mjg0
+MjU2MzYsLTE1NTk2OTUwOTQsLTczODUzODU2OSw2MjgyOTI5MC
+wxODY5ODk4MjgyLC05MTgzNDE0NTcsLTEzNjE5MjcxMiwzODgw
+MDkzNDEsLTIwNTg0MDM5ODcsODU2Mjg2OTAsLTIwNDA0ODkxNj
+csNjg0NzUyNTAzLC0yMDY5NDk1Nzg3XX0=
 -->
