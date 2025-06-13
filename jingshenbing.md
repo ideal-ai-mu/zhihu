@@ -184,7 +184,7 @@
 我瞬间一下子全明白了，江真就是当年疑似性骚扰林雪的那个男生，而我第一次看他眼熟便是如此，他竟然改名了。
 我立马打电话给小李：“小李，今晚让调查科的人查一查医生江真，以及当年林雪性侵案那个男生是不是现在的江真，明天务必给我结果。”
 做完这一切之后，我在慕雪的聊天框里发了一条消息，“你认识林海吗？”
-我没在收到慕雪的自动回复，而是等了许久，他回道：“zhes”
+我没在收到慕雪的自动回复，而是等了许久，他回道：“这事林海的Truth账号和密码，你看完之后就都明白了。至于我只不过是曾经帮助过林海的M律师，一个想把他从深渊里拉出来的人。前两天我得知”
 
 08
 
@@ -234,8 +234,8 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTAzMTM1NzQsLTczODUzODU2OSw2MjgyOT
-I5MCwxODY5ODk4MjgyLC05MTgzNDE0NTcsLTEzNjE5MjcxMiwz
-ODgwMDkzNDEsLTIwNTg0MDM5ODcsODU2Mjg2OTAsLTIwNDA0OD
-kxNjcsNjg0NzUyNTAzLC0yMDY5NDk1Nzg3XX0=
+eyJoaXN0b3J5IjpbMTM0MzM5OTAwNSwtNzM4NTM4NTY5LDYyOD
+I5MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1NywtMTM2MTkyNzEy
+LDM4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NTYyODY5MCwtMjA0MD
+Q4OTE2Nyw2ODQ3NTI1MDMsLTIwNjk0OTU3ODddfQ==
 -->
