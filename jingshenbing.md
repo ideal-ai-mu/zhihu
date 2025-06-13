@@ -140,7 +140,7 @@
 我安抚了一会【慕声】，并安排其他人照看他，随后跟小李走出了审讯室。
 「你觉得【慕声】说的话有几分真假？」我问一旁的小李。
 「陈队，他现在说的话，我真的很难分辨，况且他是病人。」小李挠了挠头。
-我随即道：“有两点重要信息，第一点，林海对【慕声】‘为什么要这样做’的质问到底是指什么；第二，【慕声】版本的三只小猪那个勇猛的大哥人格是否真实存在，还是如慕涛所言只是【慕声】幻想的自己罢了？”
+我随即道：“有两点重要信息，第一点，林海对【慕声】‘为什么要这样做’的质问到底是指什么；第二，【慕声】版本的三只小猪那个勇猛的大哥人格是否真实存在，按照我们之前推断这有可能是慕涛版本【慕声】幻想的自己罢了”
 「你有没有发现，我们一直在被医生和精神病人牵着鼻子走，我们所有知道和猜测的事都是来源江真、慕涛和【慕声】所说，而真假却不得知。唯一受害者是林海，而接下来就要彻查林海，我要知道他家庭信息和他为什么进的精神病院。」
 小李似乎知道我的用意，点头道：「陈队，保证今天就完成任务。」
 而我之所以这样做，我相信林海的死绝非一次意外偶然，要想知道原因，就要知道他们三个人之间到底是否存在关系。
@@ -250,10 +250,10 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTgwMDM2MDM4LC0xMjE0NjIxNjA5LDE5OT
-AxMTM2MzksLTIwMzk4MDkwNDgsLTQyODQyNTYzNiwtMTU1OTY5
-NTA5NCwtNzM4NTM4NTY5LDYyODI5MjkwLDE4Njk4OTgyODIsLT
-kxODM0MTQ1NywtMTM2MTkyNzEyLDM4ODAwOTM0MSwtMjA1ODQw
-Mzk4Nyw4NTYyODY5MCwtMjA0MDQ4OTE2Nyw2ODQ3NTI1MDMsLT
-IwNjk0OTU3ODddfQ==
+eyJoaXN0b3J5IjpbLTkxNjU5NjYzNCwtMTIxNDYyMTYwOSwxOT
+kwMTEzNjM5LC0yMDM5ODA5MDQ4LC00Mjg0MjU2MzYsLTE1NTk2
+OTUwOTQsLTczODUzODU2OSw2MjgyOTI5MCwxODY5ODk4MjgyLC
+05MTgzNDE0NTcsLTEzNjE5MjcxMiwzODgwMDkzNDEsLTIwNTg0
+MDM5ODcsODU2Mjg2OTAsLTIwNDA0ODkxNjcsNjg0NzUyNTAzLC
+0yMDY5NDk1Nzg3XX0=
 -->
