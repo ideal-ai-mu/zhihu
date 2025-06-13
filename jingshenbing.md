@@ -179,7 +179,7 @@
 「你好！」
 「我现在有事不在，并向你推荐了一个我写的帖子。」
 像他这种人难免不喜欢被别人打扰，设置自动回复是很常见的，我不死心，又发了一条信息，仍然是同样的自动回复，反正也没什么特别的事情，索性点开了他推荐的那篇帖子看了看。
-故事讲的是一个父亲为了替女儿报仇的故事。故事中的父亲在一次开车撞死了一对母女，由于查出此人车内有大量精神病药物，在律师
+故事讲的是一个父亲为了替女儿报仇的故事。故事中的父亲在一次开车撞死了一对母女，由于查出此人车内有大量精神病药物，在律师M的帮助下成功混进了精神病院手刃了间接害死女儿凶手的W，而chuangsi的母女就是W的妻女。
 
 
 
@@ -225,7 +225,7 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbODgyMTQ3ODkxLDM4ODAwOTM0MSwtMjA1OD
-QwMzk4Nyw4NTYyODY5MCwtMjA0MDQ4OTE2Nyw2ODQ3NTI1MDMs
-LTIwNjk0OTU3ODddfQ==
+eyJoaXN0b3J5IjpbLTEwNjI0Mzk5OTAsMzg4MDA5MzQxLC0yMD
+U4NDAzOTg3LDg1NjI4NjkwLC0yMDQwNDg5MTY3LDY4NDc1MjUw
+MywtMjA2OTQ5NTc4N119
 -->
