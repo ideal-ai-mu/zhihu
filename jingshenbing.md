@@ -208,7 +208,8 @@
 当处在精神崩溃边缘的林海听到林雪的死是因为慕涛的造谣，便去找慕涛，但是此时是【慕声】的人格处在主导地位，慕声不知道发生了什么，被林海殴打，慌乱间抓到林海身上本来用于杀江真的水果刀，这时【慕声】心中那份勇猛的幻想，让懦弱的他鼓起了勇气对林海反抗，失手杀了林海，这是一次误杀。
 “你觉得慕涛是个什么样的人？”
 “还记得我跟你一开始跟你说的吗？我有时候觉得他还有第三个人格存在。”
-我知道他指的【慕声】版本的勇猛的大哥人格，但是这和慕涛的家庭情况是不符合的，而似乎慕涛版本的
+我知道他指的【慕声】版本的勇猛的大哥人格，但是这和慕涛的家庭情况是不符合的，而似乎慕涛版本的才更符合，随即我把慕涛版本的三只小猪跟江真说了说。
+江真点了点头，似乎同意我的看法，道：“看来医生的直觉也有错的时候，”
 
 
 
@@ -252,7 +253,7 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3NDY4OTM4MSwtMTY0MzA0MTU1NSwtMT
+eyJoaXN0b3J5IjpbLTE3ODAxODk0MywtMTY0MzA0MTU1NSwtMT
 IxNDYyMTYwOSwxOTkwMTEzNjM5LC0yMDM5ODA5MDQ4LC00Mjg0
 MjU2MzYsLTE1NTk2OTUwOTQsLTczODUzODU2OSw2MjgyOTI5MC
 wxODY5ODk4MjgyLC05MTgzNDE0NTcsLTEzNjE5MjcxMiwzODgw
