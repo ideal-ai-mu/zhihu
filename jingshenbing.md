@@ -210,7 +210,9 @@
 “还记得我跟你一开始跟你说的吗？我有时候觉得他还有第三个人格存在。”
 我知道他指的【慕声】版本的勇猛的大哥人格，但是这和慕涛的家庭情况是不符合的，而似乎慕涛版本的才更符合，随即我把慕涛版本的三只小猪跟江真说了说。
 江真点了点头，似乎同意我的看法，道：“看来医生的直觉也有错的时候。但是【慕声】从不会撒谎。”
-这一点我没办法认同，我对精神病人的话，总是持
+这一点我没办法认同，我对精神病人的话，总是持怀疑的态度，谁更有道理便更愿意相信谁。
+10
+江真案很快下来了，毋庸置疑是死刑。而林海案是gu
 
 
 
@@ -254,10 +256,10 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3NzI3OTA4MTEsLTE2NDMwNDE1NTUsLT
-EyMTQ2MjE2MDksMTk5MDExMzYzOSwtMjAzOTgwOTA0OCwtNDI4
-NDI1NjM2LC0xNTU5Njk1MDk0LC03Mzg1Mzg1NjksNjI4MjkyOT
-AsMTg2OTg5ODI4MiwtOTE4MzQxNDU3LC0xMzYxOTI3MTIsMzg4
-MDA5MzQxLC0yMDU4NDAzOTg3LDg1NjI4NjkwLC0yMDQwNDg5MT
-Y3LDY4NDc1MjUwMywtMjA2OTQ5NTc4N119
+eyJoaXN0b3J5IjpbNjc3OTU1NDYzLC0xNjQzMDQxNTU1LC0xMj
+E0NjIxNjA5LDE5OTAxMTM2MzksLTIwMzk4MDkwNDgsLTQyODQy
+NTYzNiwtMTU1OTY5NTA5NCwtNzM4NTM4NTY5LDYyODI5MjkwLD
+E4Njk4OTgyODIsLTkxODM0MTQ1NywtMTM2MTkyNzEyLDM4ODAw
+OTM0MSwtMjA1ODQwMzk4Nyw4NTYyODY5MCwtMjA0MDQ4OTE2Ny
+w2ODQ3NTI1MDMsLTIwNjk0OTU3ODddfQ==
 -->
