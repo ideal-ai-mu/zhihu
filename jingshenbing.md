@@ -193,7 +193,7 @@
 天使与恶魔有时候会是同一个人。
 08
 第二天上午我拉着大伙开了次紧急会议，梳理我所知道的事情和证据。
-十二年前，死者的林海的女儿林雪传出和同校一个男生的绯闻，男生因为此事转学，而林雪受到同学的嘲讽跳楼自杀。林海伤痛欲绝，把女儿林雪的死归咎于那个男生，而之后，那个男生似乎人间蒸发了一样。而就在三年前，林海因为抑郁症去了精神病院，恰巧
+十二年前，死者的林海的女儿林雪传出和同校一个男生的绯闻，男生因为此事转学，而林雪受到同学的嘲讽跳楼自杀。林海伤痛欲绝，把女儿林雪的死归咎于那个男生，而之后，那个男生似乎人间蒸发了一样。而就在三年前，林海因为抑郁症去了精神病院，恰巧碰见了江真，而林海一眼便认出了江真就是当年那个男生。于是林海心中有了一个计划，他要让江真家破人亡，他暗中查到江真
 
 
 
@@ -240,8 +240,8 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwMzQyMjE2ODgsLTczODUzODU2OSw2Mj
-gyOTI5MCwxODY5ODk4MjgyLC05MTgzNDE0NTcsLTEzNjE5Mjcx
-MiwzODgwMDkzNDEsLTIwNTg0MDM5ODcsODU2Mjg2OTAsLTIwND
-A0ODkxNjcsNjg0NzUyNTAzLC0yMDY5NDk1Nzg3XX0=
+eyJoaXN0b3J5IjpbMzM0Mjg5NTM1LC03Mzg1Mzg1NjksNjI4Mj
+kyOTAsMTg2OTg5ODI4MiwtOTE4MzQxNDU3LC0xMzYxOTI3MTIs
+Mzg4MDA5MzQxLC0yMDU4NDAzOTg3LDg1NjI4NjkwLC0yMDQwND
+g5MTY3LDY4NDc1MjUwMywtMjA2OTQ5NTc4N119
 -->
