@@ -209,7 +209,8 @@
 “你觉得慕涛是个什么样的人？”
 “还记得我跟你一开始跟你说的吗？我有时候觉得他还有第三个人格存在。”
 我知道他指的【慕声】版本的勇猛的大哥人格，但是这和慕涛的家庭情况是不符合的，而似乎慕涛版本的才更符合，随即我把慕涛版本的三只小猪跟江真说了说。
-江真点了点头，似乎同意我的看法，道：“看来医生的直觉也有错的时候，”
+江真点了点头，似乎同意我的看法，道：“看来医生的直觉也有错的时候。但是【慕声】从不会撒谎。”
+这一点我没办法认同，我对精神病人的话，总是持
 
 
 
@@ -253,10 +254,10 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3ODAxODk0MywtMTY0MzA0MTU1NSwtMT
-IxNDYyMTYwOSwxOTkwMTEzNjM5LC0yMDM5ODA5MDQ4LC00Mjg0
-MjU2MzYsLTE1NTk2OTUwOTQsLTczODUzODU2OSw2MjgyOTI5MC
-wxODY5ODk4MjgyLC05MTgzNDE0NTcsLTEzNjE5MjcxMiwzODgw
-MDkzNDEsLTIwNTg0MDM5ODcsODU2Mjg2OTAsLTIwNDA0ODkxNj
-csNjg0NzUyNTAzLC0yMDY5NDk1Nzg3XX0=
+eyJoaXN0b3J5IjpbLTE3NzI3OTA4MTEsLTE2NDMwNDE1NTUsLT
+EyMTQ2MjE2MDksMTk5MDExMzYzOSwtMjAzOTgwOTA0OCwtNDI4
+NDI1NjM2LC0xNTU5Njk1MDk0LC03Mzg1Mzg1NjksNjI4MjkyOT
+AsMTg2OTg5ODI4MiwtOTE4MzQxNDU3LC0xMzYxOTI3MTIsMzg4
+MDA5MzQxLC0yMDU4NDAzOTg3LDg1NjI4NjkwLC0yMDQwNDg5MT
+Y3LDY4NDc1MjUwMywtMjA2OTQ5NTc4N119
 -->
