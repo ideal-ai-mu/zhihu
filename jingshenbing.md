@@ -203,7 +203,7 @@
 “那你为什么还不断和他接触？你不知道他对你有多少恨？”
 江真笑了笑，随后大声道：“林海就是个无耻的失责的父亲。你们查到的消息是不是都觉得是我害死了林雪。”
 我看向了江真，没有否认，似乎潜意识也是这么觉得，倘若没有他骚扰林雪，也不会有后来的事情。
-江真看了没说话的我，也明白了我所想，连忙说了两个好字，并继续dao
+江真看了没说话的我，也明白了我所想，连忙说了两个好字，并继续道：“当年我与林雪是互相喜欢，只是一直隐瞒着所有人。在当时，高中谈恋爱被发现，后果很严重。”
 
 
 
@@ -249,9 +249,9 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjQzMDc1OTczLC0xNTU5Njk1MDk0LC03Mz
-g1Mzg1NjksNjI4MjkyOTAsMTg2OTg5ODI4MiwtOTE4MzQxNDU3
-LC0xMzYxOTI3MTIsMzg4MDA5MzQxLC0yMDU4NDAzOTg3LDg1Nj
-I4NjkwLC0yMDQwNDg5MTY3LDY4NDc1MjUwMywtMjA2OTQ5NTc4
-N119
+eyJoaXN0b3J5IjpbMTczODAxMTA1OSwtMTU1OTY5NTA5NCwtNz
+M4NTM4NTY5LDYyODI5MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1
+NywtMTM2MTkyNzEyLDM4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NT
+YyODY5MCwtMjA0MDQ4OTE2Nyw2ODQ3NTI1MDMsLTIwNjk0OTU3
+ODddfQ==
 -->
