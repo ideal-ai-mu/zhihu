@@ -135,8 +135,7 @@
 我看得出他的担忧，随即我握住他的颤抖的手，「把你知道的说出来，我想我可以帮到你。」
 【慕声】看了看我，微微的点点了头，说了起来。
 「那天，林海向疯子一样跑到我的房间，奇奇怪怪的问我，为什么要这样做。我很害怕，他不停地拽着我，我就往外跑，他就追着我，他打我，我就跟他扭打在地上，慌乱间我摸到他身上的东西，我就往他身上扎。然后不知道怎么回事，等我反应过来，他已经倒在地上，我很害怕。」
-
-【慕声】说着说着开始语无伦次，大致的事情经过我已经了解，不管【慕声】是否说了谎，但是有一个有用的信息值得进一步调查，林海为什么要对【musheng】
+【慕声】说着说着开始语无伦次，大致的事情经过我已经了解，不管【慕声】是否说了谎，但是有一个有用的信息值得进一步调查，林海为什么要对【慕声】这样，林海质问【慕声】“为什么要这么做”到底指什么。
 我安抚了一会【慕声】，并安排其他人照看他，随后跟小李走出了审讯室。
 「你觉得【慕声】说的话有几分真假？」我问一旁的小李。
 「陈队，他现在说的话，我真的很难分辨，况且他是病人。」小李挠了挠头。
@@ -253,7 +252,7 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTE5NzQ0OTAwLDE5OTAxMTM2MzksLTIwMz
+eyJoaXN0b3J5IjpbNDAyNTU1MzQzLDE5OTAxMTM2MzksLTIwMz
 k4MDkwNDgsLTQyODQyNTYzNiwtMTU1OTY5NTA5NCwtNzM4NTM4
 NTY5LDYyODI5MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1NywtMT
 M2MTkyNzEyLDM4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NTYyODY5
