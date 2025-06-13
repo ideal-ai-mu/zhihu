@@ -212,7 +212,7 @@
 江真点了点头，似乎同意我的看法，道：“看来医生的直觉也有错的时候。但是【慕声】从不会撒谎。”
 这一点我没办法认同，我对精神病人的话，总是持怀疑的态度，谁更有道理便更愿意相信谁。
 10
-江真案很快下来了，毋庸置疑是死刑。而林海案是gu
+江真案很快下来了，毋庸置疑是死刑。而林海案是判了过失杀人，加上当时嫌疑犯是精神病这种特殊情况，慕涛最后随着原精神病人一起转院了，但也一直在xind
 
 
 
@@ -256,10 +256,10 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjc3OTU1NDYzLC0xNjQzMDQxNTU1LC0xMj
-E0NjIxNjA5LDE5OTAxMTM2MzksLTIwMzk4MDkwNDgsLTQyODQy
-NTYzNiwtMTU1OTY5NTA5NCwtNzM4NTM4NTY5LDYyODI5MjkwLD
-E4Njk4OTgyODIsLTkxODM0MTQ1NywtMTM2MTkyNzEyLDM4ODAw
-OTM0MSwtMjA1ODQwMzk4Nyw4NTYyODY5MCwtMjA0MDQ4OTE2Ny
-w2ODQ3NTI1MDMsLTIwNjk0OTU3ODddfQ==
+eyJoaXN0b3J5IjpbMTgzMDM3MTg4NSwtMTY0MzA0MTU1NSwtMT
+IxNDYyMTYwOSwxOTkwMTEzNjM5LC0yMDM5ODA5MDQ4LC00Mjg0
+MjU2MzYsLTE1NTk2OTUwOTQsLTczODUzODU2OSw2MjgyOTI5MC
+wxODY5ODk4MjgyLC05MTgzNDE0NTcsLTEzNjE5MjcxMiwzODgw
+MDkzNDEsLTIwNTg0MDM5ODcsODU2Mjg2OTAsLTIwNDA0ODkxNj
+csNjg0NzUyNTAzLC0yMDY5NDk1Nzg3XX0=
 -->
