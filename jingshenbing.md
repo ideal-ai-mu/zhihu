@@ -184,7 +184,7 @@
 我瞬间一下子全明白了，江真就是当年疑似性骚扰林雪的那个男生，而我第一次看他眼熟便是如此，他竟然改名了。
 我立马打电话给小李：“小李，今晚让调查科的人查一查医生江真，以及当年林雪性侵案那个男生是不是现在的江真，明天务必给我结果。”
 做完这一切之后，我在慕雪的聊天框里发了一条消息，“希望这只是个偶然。”
-我并没有得到他的回复，依然是那条冰冷的自动回复，我不相信非常偶然的事，就像这条自动回复一样。
+我没在收到慕雪的自动回复，而是
 
 08
 
@@ -234,8 +234,8 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTczODUzODU2OSw2MjgyOTI5MCwxODY5OD
-k4MjgyLC05MTgzNDE0NTcsLTEzNjE5MjcxMiwzODgwMDkzNDEs
-LTIwNTg0MDM5ODcsODU2Mjg2OTAsLTIwNDA0ODkxNjcsNjg0Nz
-UyNTAzLC0yMDY5NDk1Nzg3XX0=
+eyJoaXN0b3J5IjpbMTY0NDI5NDY0MSwtNzM4NTM4NTY5LDYyOD
+I5MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1NywtMTM2MTkyNzEy
+LDM4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NTYyODY5MCwtMjA0MD
+Q4OTE2Nyw2ODQ3NTI1MDMsLTIwNjk0OTU3ODddfQ==
 -->
