@@ -189,7 +189,8 @@
 我迫不及待的登录了林海的Truth，看着每一条林海的记录。
 当我看到林海写到，“我终于找到当年那个害死你的始作俑者，没想到他竟然当了医生，还改名叫江真。雪儿，这一次我已一定不会放过他。”上面还附着一张江真的照片，看着这张照片，算是我之前的猜想都已经得到证实。
 我继续看下去，不过是林海他的一步步计划。而更让我惊讶的是，林海竟然拍摄了很多这家精神病院的黑幕，江真还虐待病人，仗着精神病院干着贩卖器官的勾当。而林海的最终计划带收集完整的证据，并亲手杀了江真，并将真相公布，但他似乎一直没找到下手的机会，就这样却离奇死了。
-看着这一张张照片，我气得咬牙切齿
+看着这一张张照片，我气得咬牙切齿。我死死的攥紧拳头，暗道：“原来我第一次去那家精神病院感到的压抑，并非来自陌生，而是那群病人惊恐的眼神。”
+天使与恶魔有时候hu
 08
 
 
@@ -238,8 +239,8 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExNjAzMzAwOTEsLTczODUzODU2OSw2Mj
-gyOTI5MCwxODY5ODk4MjgyLC05MTgzNDE0NTcsLTEzNjE5Mjcx
-MiwzODgwMDkzNDEsLTIwNTg0MDM5ODcsODU2Mjg2OTAsLTIwND
-A0ODkxNjcsNjg0NzUyNTAzLC0yMDY5NDk1Nzg3XX0=
+eyJoaXN0b3J5IjpbLTE1NDg3NTAwOCwtNzM4NTM4NTY5LDYyOD
+I5MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1NywtMTM2MTkyNzEy
+LDM4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NTYyODY5MCwtMjA0MD
+Q4OTE2Nyw2ODQ3NTI1MDMsLTIwNjk0OTU3ODddfQ==
 -->
