@@ -208,7 +208,7 @@
 #最后找到了，说明一下
 江真不像说谎，突然想到林海有这样一条记录“就让那些犯了错的人一起下地狱，包括我自己”，也许林海在极度自责的情况下才会想与江真同归于尽，这也解释的通为什么林海有与江真同归于尽的想法。
 “但是我没想到，他竟然骗了我，骗了我们所有人，竟然是你们的人。”江真恶狠狠的盯着我。
-我苦笑，看来他是误会了，“”
+我苦笑，看来他是误会了，“你误会了，林海并不是你所谓的卧底，他进”
 
 
 
@@ -254,9 +254,9 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyMTA5MTE0NjcsLTE1NTk2OTUwOTQsLT
-czODUzODU2OSw2MjgyOTI5MCwxODY5ODk4MjgyLC05MTgzNDE0
-NTcsLTEzNjE5MjcxMiwzODgwMDkzNDEsLTIwNTg0MDM5ODcsOD
-U2Mjg2OTAsLTIwNDA0ODkxNjcsNjg0NzUyNTAzLC0yMDY5NDk1
-Nzg3XX0=
+eyJoaXN0b3J5IjpbLTM1MDQyNDM0LC0xNTU5Njk1MDk0LC03Mz
+g1Mzg1NjksNjI4MjkyOTAsMTg2OTg5ODI4MiwtOTE4MzQxNDU3
+LC0xMzYxOTI3MTIsMzg4MDA5MzQxLC0yMDU4NDAzOTg3LDg1Nj
+I4NjkwLC0yMDQwNDg5MTY3LDY4NDc1MjUwMywtMjA2OTQ5NTc4
+N119
 -->
