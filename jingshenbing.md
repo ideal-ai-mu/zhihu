@@ -185,6 +185,7 @@
 我看完之后，不知为何把这位父亲想成了林海，想到这里我瞬间满头大汗。林海就是如那位父亲一样开车撞了人，后因为精神病进了医院，只是并未撞死人。倘若江真就是故事里的医生J，那对母女真的像我们猜测那样是江真的妻女，那林海为女报仇，仇人是江真，江真，林雪。
 我瞬间一下子全明白了，江真就是当年疑似性骚扰林雪的那个男生，而我第一次看他眼熟便是如此，他竟然改名了。
 我立马打电话给小李：“小李，今晚让调查科的人查一查医生江真，以及当年林雪性侵案那个男生是不是现在的江真，明天务必给我结果。”
+做完这一切之后，
 
 
 
@@ -231,7 +232,7 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU2NzQyNTU4MiwxODY5ODk4MjgyLC05MT
+eyJoaXN0b3J5IjpbLTE0NTA0MTcyOSwxODY5ODk4MjgyLC05MT
 gzNDE0NTcsLTEzNjE5MjcxMiwzODgwMDkzNDEsLTIwNTg0MDM5
 ODcsODU2Mjg2OTAsLTIwNDA0ODkxNjcsNjg0NzUyNTAzLC0yMD
 Y5NDk1Nzg3XX0=
