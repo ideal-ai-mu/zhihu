@@ -197,7 +197,8 @@
 我把一张张证据图片扔到桌子上，众人看了之后，都唏嘘不已。调查科也已查清江真就是当年林雪案的那个绯闻男生，并且，江真靠父母关系进的这家精神病院。小李也把他调查那对母女的事情说明了，那对母女确实是江真的妻女，而资金来源就是江真，江真这样做，是怕哪一天东窗事发，他的妻女能平安。
 江真和林海的这层关系网，已经彻底清楚了。而现在不清楚的是林海的死因，想必很快就能知道了。
 抓捕行动秘密进行的，精神病院很快被一锅断掉了，这件事直接轰动了全国，事情及其恶劣。
-江真坐在审讯室里，
+09
+江真坐在审讯室里，憔悴了很多，不像我第一次见他那般意气风发，接受他的毋庸置疑是死刑。“江医生，nij”
 
 
 
@@ -243,7 +244,7 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTIwODg1Mzg1NSwtNzM4NTM4NTY5LDYyOD
+eyJoaXN0b3J5IjpbMTgwNDQzMDcxMCwtNzM4NTM4NTY5LDYyOD
 I5MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1NywtMTM2MTkyNzEy
 LDM4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NTYyODY5MCwtMjA0MD
 Q4OTE2Nyw2ODQ3NTI1MDMsLTIwNjk0OTU3ODddfQ==
