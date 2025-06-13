@@ -186,7 +186,8 @@
 做完这一切之后，我在慕雪的聊天框里发了一条消息，“你认识林海吗？”
 我没在收到慕雪的自动回复，而是等了许久，他回道：“这是林海的Truth账号和密码，你看完之后就都明白了。至于我只不过是曾经帮助过林海的M律师，一个想把他从深渊里拉出来的人。前两天我得知他离世，便根据他之前的遗愿就是把他的Truth账号交给第一个想我问起他的人。”
 果然如我猜测那般，这一切并非偶然，原来这个帖子就是慕雪依据林海的事迹写的，只是预先设计好的结局并未如林海所愿。慕雪再也没说其他的东西，可能是怕惹上不必要的麻烦。
-我迫不及待的登录了林海的Truth，看着每一条林海的记录。当我看到林海写到，
+我迫不及待的登录了林海的Truth，看着每一条林海的记录。当我看到林海写到，“我终于找到当年那个害死你的始作俑者，没想到他竟然当了医生，还改名叫江真。雪儿，这一次我已一定不会放过他。”
+
 
 08
 
@@ -236,7 +237,7 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTg5OTIyNTQ3LC03Mzg1Mzg1NjksNjI4Mj
+eyJoaXN0b3J5IjpbNjU1NjkwNDYzLC03Mzg1Mzg1NjksNjI4Mj
 kyOTAsMTg2OTg5ODI4MiwtOTE4MzQxNDU3LC0xMzYxOTI3MTIs
 Mzg4MDA5MzQxLC0yMDU4NDAzOTg3LDg1NjI4NjkwLC0yMDQwND
 g5MTY3LDY4NDc1MjUwMywtMjA2OTQ5NTc4N119
