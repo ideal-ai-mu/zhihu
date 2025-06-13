@@ -192,7 +192,7 @@
 看着这一张张照片，我气得咬牙切齿，我死死的攥紧拳头，暗道：“原来我第一次去那家精神病院感到的压抑，并非来自陌生，而是那群病人惊恐的眼神。”
 天使与恶魔有时候会是同一个人。
 08
-
+第二天上午我拉着大伙开了次紧急会议，梳理我所知道的事情
 
 
 
@@ -239,8 +239,8 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc3NTgxMzc3MiwtNzM4NTM4NTY5LDYyOD
-I5MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1NywtMTM2MTkyNzEy
-LDM4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NTYyODY5MCwtMjA0MD
-Q4OTE2Nyw2ODQ3NTI1MDMsLTIwNjk0OTU3ODddfQ==
+eyJoaXN0b3J5IjpbLTE4NjMxOTEzMzYsLTczODUzODU2OSw2Mj
+gyOTI5MCwxODY5ODk4MjgyLC05MTgzNDE0NTcsLTEzNjE5Mjcx
+MiwzODgwMDkzNDEsLTIwNTg0MDM5ODcsODU2Mjg2OTAsLTIwND
+A0ODkxNjcsNjg0NzUyNTAzLC0yMDY5NDk1Nzg3XX0=
 -->
