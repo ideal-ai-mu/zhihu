@@ -204,7 +204,9 @@
 江真笑了笑，随后大声道：“林海就是个无耻的失责的父亲。你们查到的消息是不是都觉得是我害死了林雪。”
 我看向了江真，没有否认，似乎潜意识也是这么觉得，倘若没有他骚扰林雪，也不会有后来的事情。
 江真看了没说话的我，也明白了我所想，连忙说了两个好字，并继续道：“当年我与林雪是互相喜欢，只是一直隐瞒着所有人。在当时，高中谈恋爱被学校发现，后果会很严重。但是林海做了什么，他得知我和林雪的事，竟然以此来到我的家，威胁我的家人。最后如他所愿他得逞了。我转学没多久听到林雪的噩耗，那一刻我不比林海伤心。你现在觉得是谁害死了林雪。”
-江真看了我满脸惊讶的表情，继续道：“我是一个将死之人，我没必要说谎。如果不信，”
+江真看了我满脸惊讶的表情，继续道：“我是一个将死之人，我没必要说谎。如果不信，想必你在我家里还能找到那时候我与林雪的情书来往。至于我为什么不介意林海接近我，因为我对他”
+#最后找到了，说明一下
+
 
 
 
@@ -250,9 +252,9 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjkwNTE1ODk3LC0xNTU5Njk1MDk0LC03Mz
-g1Mzg1NjksNjI4MjkyOTAsMTg2OTg5ODI4MiwtOTE4MzQxNDU3
-LC0xMzYxOTI3MTIsMzg4MDA5MzQxLC0yMDU4NDAzOTg3LDg1Nj
-I4NjkwLC0yMDQwNDg5MTY3LDY4NDc1MjUwMywtMjA2OTQ5NTc4
-N119
+eyJoaXN0b3J5IjpbLTcwMDUyNDUyMywtMTU1OTY5NTA5NCwtNz
+M4NTM4NTY5LDYyODI5MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1
+NywtMTM2MTkyNzEyLDM4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NT
+YyODY5MCwtMjA0MDQ4OTE2Nyw2ODQ3NTI1MDMsLTIwNjk0OTU3
+ODddfQ==
 -->
