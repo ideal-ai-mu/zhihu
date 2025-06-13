@@ -213,7 +213,7 @@
 这一点我没办法认同，我对精神病人的话，总是持怀疑的态度，谁更有道理便更愿意相信谁。
 10
 江真案很快下来了，毋庸置疑是死刑。而林海案是判了过失杀人，加上当时嫌疑犯是精神病这种特殊情况，慕涛最后随着原精神病人一起转院了，但也一直在新的精神病院处于监禁状态。
-我本来以为事情到了这里已经结束了，当我
+我本来以为事情到了这里已经结束了，当我拆开哪些从江真家中抄来的信件，那是当初林雪与江真的情书，却如江真所言，他们真的是互相喜欢。然而当我看到，林雪
 
 
 
@@ -257,7 +257,7 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTUwMzUxNTk3NywtMTY0MzA0MTU1NSwtMT
+eyJoaXN0b3J5IjpbLTQyMjMwNzA0NSwtMTY0MzA0MTU1NSwtMT
 IxNDYyMTYwOSwxOTkwMTEzNjM5LC0yMDM5ODA5MDQ4LC00Mjg0
 MjU2MzYsLTE1NTk2OTUwOTQsLTczODUzODU2OSw2MjgyOTI5MC
 wxODY5ODk4MjgyLC05MTgzNDE0NTcsLTEzNjE5MjcxMiwzODgw
