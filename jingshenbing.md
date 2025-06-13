@@ -200,7 +200,8 @@
 09
 江真坐在审讯室里，憔悴了很多，不像我第一次见他那般意气风发，接受他的毋庸置疑是死刑。“江医生，其实你一开始就知道林海是林雪的父亲吧！”
 江真疑惑的看了看我，随后似有所思，哀叹了一声，“果然，你都已经知道了。没错，我第一次见到他我就知道他是林雪的父亲。”
-
+“那你为什么还不断和他接触？你不知道他对你有多少恨！”
+“”
 
 
 
@@ -246,8 +247,9 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1NTk2OTUwOTQsLTczODUzODU2OSw2Mj
-gyOTI5MCwxODY5ODk4MjgyLC05MTgzNDE0NTcsLTEzNjE5Mjcx
-MiwzODgwMDkzNDEsLTIwNTg0MDM5ODcsODU2Mjg2OTAsLTIwND
-A0ODkxNjcsNjg0NzUyNTAzLC0yMDY5NDk1Nzg3XX0=
+eyJoaXN0b3J5IjpbLTQyNDMyOTU4NiwtMTU1OTY5NTA5NCwtNz
+M4NTM4NTY5LDYyODI5MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1
+NywtMTM2MTkyNzEyLDM4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NT
+YyODY5MCwtMjA0MDQ4OTE2Nyw2ODQ3NTI1MDMsLTIwNjk0OTU3
+ODddfQ==
 -->
