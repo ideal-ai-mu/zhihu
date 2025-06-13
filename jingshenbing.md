@@ -185,7 +185,7 @@
 我立马打电话给小李：“小李，今晚让调查科的人查一查医生江真，以及当年林雪性侵案那个男生是不是现在的江真，明天务必给我结果。”
 做完这一切之后，我在慕雪的聊天框里发了一条消息，“你认识林海吗？”
 我没在收到慕雪的自动回复，而是等了许久，他回道：“这是林海的Truth账号和密码，你看完之后就都明白了。至于我只不过是曾经帮助过林海的M律师，一个想把他从深渊里拉出来的人。前两天我得知他离世，便根据他之前的遗愿就是把他的Truth账号交给第一个想我问起他的人。”
-
+果然如我猜测那般，这一切并非偶然，原来这个帖子就是慕雪依据林海的事迹写的，只是预先设计好的结局并未如林海所yuan愿。
 08
 
 
@@ -234,7 +234,7 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTUwNzIyNDIwNiwtNzM4NTM4NTY5LDYyOD
+eyJoaXN0b3J5IjpbMTAwMzUzMzUwMywtNzM4NTM4NTY5LDYyOD
 I5MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1NywtMTM2MTkyNzEy
 LDM4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NTYyODY5MCwtMjA0MD
 Q4OTE2Nyw2ODQ3NTI1MDMsLTIwNjk0OTU3ODddfQ==
