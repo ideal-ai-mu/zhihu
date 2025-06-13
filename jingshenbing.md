@@ -182,6 +182,7 @@
 故事讲的是一个父亲为了替女儿报仇的故事。故事中的父亲在一次开车撞死了一对母女，由于查出此人车内有大量精神病药物，在律师M的帮助下成功混进了精神病院手刃了间接害死女儿凶手的医生J，而撞死的母女就是W的妻女。其中的作案手法及其详细，包括这位父亲如何每周去精神病院治疗，如何随身携带药物，如何设计车祸，又如何杀害医生……
 我看完之后，不知为何把这位父亲想成了林海，想到这里我瞬间满头大汗。林海就是如那位父亲一样开车撞了人，然后因为精神病进了医院，只是并未撞死人。倘若江真就是故事里的医生J，那对母女真的像我们猜测那样是江真的妻女，那林海为女报仇，仇人是江真，江真，林雪。
 我瞬间一下子全明白了，江真就是当年疑似性骚扰林雪的那个男生，而我第一次看他眼熟便是如此，他竟然改名了。
+我立马打电话给小李：“小李，今晚让调查科的人查一查医生江真，以及当年林雪性侵案跟”
 
 
 
@@ -227,7 +228,7 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTY3MjE4MTg3NCwzODgwMDkzNDEsLTIwNT
-g0MDM5ODcsODU2Mjg2OTAsLTIwNDA0ODkxNjcsNjg0NzUyNTAz
-LC0yMDY5NDk1Nzg3XX0=
+eyJoaXN0b3J5IjpbLTE1NTI2NTUyMzksMzg4MDA5MzQxLC0yMD
+U4NDAzOTg3LDg1NjI4NjkwLC0yMDQwNDg5MTY3LDY4NDc1MjUw
+MywtMjA2OTQ5NTc4N119
 -->
