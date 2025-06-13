@@ -139,11 +139,7 @@
 我安抚了一会【慕声】，并安排其他人照看他，随后跟小李走出了审讯室。
 「你觉得【慕声】说的话有几分真假？」我问一旁的小李。
 「陈队，他现在说的话，我真的很难分辨，况且他是病人。」小李挠了挠头。
-「不管真假，他在向我们传递一些讯息。第一，纸条；第二，勇士的玩具；第三，林海的举动；第四，被替换的勇士玩具刀。如果这都是一个人所为，是不是一切就能说得通了。」
-小李听后眼前一亮，「陈队，我明白了，你是说纸条是江真故意塞给【慕声】的，而他送给【慕声】勇士用具就是为了找机会把勇士刀换成水果刀，完成借刀杀人。但是，有几个疑问……」
-「我知道你想问什么，首先如果江真故意留下水果刀，好让【慕声】误会是慕涛要把刀藏起来，而事实上是江真所为，这样江真有足够的理由说是慕涛私藏刀具；第二纸条的内容让【慕声】以为林海是来抢他的勇士，因此【慕声】会牢牢抱着勇士，为拿刀杀人造就完美的契机；第三，也是最重要的一点，为什么林海会做出那种行为，倘若江真跟林海说了一个秘密，而这个秘密足以让林海想杀慕涛呢？」
-「那江真跟林海说了什么？」小李问道。
-我摇了摇头，随后又道：「你有没有发现，我们一直在被医生和精神病人牵着鼻子走，我们所有知道和猜测的事都是来源江真、慕涛和【慕声】所说，而真假却不得知。唯一受害者是林海，而接下来就要彻查林海，我要知道他家庭信息和他为什么进的精神病院。」
+我随即道：「你有没有发现，我们一直在被医生和精神病人牵着鼻子走，我们所有知道和猜测的事都是来源江真、慕涛和【慕声】所说，而真假却不得知。唯一受害者是林海，而接下来就要彻查林海，我要知道他家庭信息和他为什么进的精神病院。」
 小李似乎知道我的用意，点头道：「陈队，保证今天就完成任务。」
 而我之所以这样做，我相信林海的死绝非一次意外偶然，要想知道原因，就要知道他们三个人之间到底是否存在关系。
 ###江真跟林海说其实慕涛也参与其中
@@ -252,10 +248,10 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDAyNTU1MzQzLDE5OTAxMTM2MzksLTIwMz
-k4MDkwNDgsLTQyODQyNTYzNiwtMTU1OTY5NTA5NCwtNzM4NTM4
-NTY5LDYyODI5MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1NywtMT
-M2MTkyNzEyLDM4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NTYyODY5
-MCwtMjA0MDQ4OTE2Nyw2ODQ3NTI1MDMsLTIwNjk0OTU3ODddfQ
-==
+eyJoaXN0b3J5IjpbLTEyMjM5NTM1MTUsMTk5MDExMzYzOSwtMj
+AzOTgwOTA0OCwtNDI4NDI1NjM2LC0xNTU5Njk1MDk0LC03Mzg1
+Mzg1NjksNjI4MjkyOTAsMTg2OTg5ODI4MiwtOTE4MzQxNDU3LC
+0xMzYxOTI3MTIsMzg4MDA5MzQxLC0yMDU4NDAzOTg3LDg1NjI4
+NjkwLC0yMDQwNDg5MTY3LDY4NDc1MjUwMywtMjA2OTQ5NTc4N1
+19
 -->
