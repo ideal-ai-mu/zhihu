@@ -207,7 +207,8 @@
 江真看了我满脸惊讶的表情，继续道：“我是一个将死之人，我没必要说谎。如果不信，想必你在我家里还能找到那时候我与林雪的情书来往。至于我为什么不介意林海接近我，因为我对他有恨，就像他对我有恨一样。我倒想看看他要对我做什么。”
 #最后找到了，说明一下
 江真不像说谎，突然想到林海有这样一条记录“就让那些犯了错的人一起下地狱，包括我自己”，也许林海在极度自责的情况下才会想与江真同归于尽，这也解释的通为什么林海有与江真同归于尽的想法。
-“但是我没想到，他竟然骗了我，pianl”
+“但是我没想到，他竟然骗了我，骗了我们所有人，竟然是你们的人。”江真恶狠狠的盯着我。
+我苦笑，看来他是误会了，“”
 
 
 
@@ -253,9 +254,9 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTg3NzcxNjg3NywtMTU1OTY5NTA5NCwtNz
-M4NTM4NTY5LDYyODI5MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1
-NywtMTM2MTkyNzEyLDM4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NT
-YyODY5MCwtMjA0MDQ4OTE2Nyw2ODQ3NTI1MDMsLTIwNjk0OTU3
-ODddfQ==
+eyJoaXN0b3J5IjpbLTEyMTA5MTE0NjcsLTE1NTk2OTUwOTQsLT
+czODUzODU2OSw2MjgyOTI5MCwxODY5ODk4MjgyLC05MTgzNDE0
+NTcsLTEzNjE5MjcxMiwzODgwMDkzNDEsLTIwNTg0MDM5ODcsOD
+U2Mjg2OTAsLTIwNDA0ODkxNjcsNjg0NzUyNTAzLC0yMDY5NDk1
+Nzg3XX0=
 -->
