@@ -133,9 +133,8 @@
 他用哀求的眼神看着我，那一瞬间我是相信的，可事实又摆在面前，我的内心很矛盾，「【慕声】，你不要怕，我相信你，你跟我说说那天发生了什么事情。」
 想要了解事情的真相，必须要了解事情经过，我现在很想知道【慕声】杀人的前因后果。
 我看得出他的担忧，随即我握住他的颤抖的手，「把你知道的说出来，我想我可以帮到你。」
-【慕声】看了看我，微微的点点了头，小声说了起来。
-「有一天，我的口袋里不知道被谁塞了一张纸条，上面说林海是坏人，林海是这个城堡里的怪人，他要带走我最宝贵的东西。###慕涛有看到，忽视，是江真让他来拿的
-「我怕他会把勇士带走，但是那天晚上林海还是来了，他冲进我的房间，我害怕的抱着勇士，但是他一上来就掐着我的脖子，我就跟他打了起来。我想起来我的勇士，我拿起来勇士的刀向他扎去……」
+【慕声】看了看我，微微的点点了头，说了起来。
+「那天，林海向疯子一样跑到我的房间，」
 「勇士？」我打断了他的叙述，说出了疑问，「勇士是个什么样的东西？」
 「他是江医生送给我礼物，说我就跟那个勇士一样勇敢，所以他是我最珍贵的礼物。但是我明明拿的是勇士的刀，为什么会变成那把水果刀，我真的不知道怎么回事，警官，我不知道会那样，我没有想过拿水果刀杀人。」
 我又拍了拍【慕声】，「你慢慢说，我相信你。你说的水果刀又是怎么回事？」
@@ -260,9 +259,10 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTk5MDExMzYzOSwtMjAzOTgwOTA0OCwtND
-I4NDI1NjM2LC0xNTU5Njk1MDk0LC03Mzg1Mzg1NjksNjI4Mjky
-OTAsMTg2OTg5ODI4MiwtOTE4MzQxNDU3LC0xMzYxOTI3MTIsMz
-g4MDA5MzQxLC0yMDU4NDAzOTg3LDg1NjI4NjkwLC0yMDQwNDg5
-MTY3LDY4NDc1MjUwMywtMjA2OTQ5NTc4N119
+eyJoaXN0b3J5IjpbLTQ4MjUzNDExNCwxOTkwMTEzNjM5LC0yMD
+M5ODA5MDQ4LC00Mjg0MjU2MzYsLTE1NTk2OTUwOTQsLTczODUz
+ODU2OSw2MjgyOTI5MCwxODY5ODk4MjgyLC05MTgzNDE0NTcsLT
+EzNjE5MjcxMiwzODgwMDkzNDEsLTIwNTg0MDM5ODcsODU2Mjg2
+OTAsLTIwNDA0ODkxNjcsNjg0NzUyNTAzLC0yMDY5NDk1Nzg3XX
+0=
 -->
