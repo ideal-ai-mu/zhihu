@@ -206,7 +206,8 @@
 江真看了没说话的我，也明白了我所想，连忙说了两个好字，并继续道：“当年我与林雪是互相喜欢，只是一直隐瞒着所有人。在当时，高中谈恋爱被学校发现，后果会很严重。但是林海做了什么，他得知我和林雪的事，竟然以此来到我的家，威胁我的家人。最后如他所愿他得逞了。我转学没多久听到林雪的噩耗，那一刻我不比林海伤心。你现在觉得是谁害死了林雪。”
 江真看了我满脸惊讶的表情，继续道：“我是一个将死之人，我没必要说谎。如果不信，想必你在我家里还能找到那时候我与林雪的情书来往。至于我为什么不介意林海接近我，因为我对他有恨，就像他对我有恨一样。我倒想看看他要对我做什么。”
 #最后找到了，说明一下
-江真不像说谎，突然想到林海有这样一条记录“就让那些犯了错的人一起下地狱，包括我自己”，也许江真在极度自责的情况下才会想与江真同归于jin
+江真不像说谎，突然想到林海有这样一条记录“就让那些犯了错的人一起下地狱，包括我自己”，也许林海在极度自责的情况下才会想与江真同归于尽，这也解释的通为什么林海有与江真同归于尽的想法。
+“但是我没想到，他竟然骗了我，pianl”
 
 
 
@@ -252,7 +253,7 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTIyODk0OTUzOCwtMTU1OTY5NTA5NCwtNz
+eyJoaXN0b3J5IjpbMTg3NzcxNjg3NywtMTU1OTY5NTA5NCwtNz
 M4NTM4NTY5LDYyODI5MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1
 NywtMTM2MTkyNzEyLDM4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NT
 YyODY5MCwtMjA0MDQ4OTE2Nyw2ODQ3NTI1MDMsLTIwNjk0OTU3
