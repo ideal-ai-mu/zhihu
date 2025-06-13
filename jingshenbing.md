@@ -134,7 +134,7 @@
 想要了解事情的真相，必须要了解事情经过，我现在很想知道【慕声】杀人的前因后果。
 我看得出他的担忧，随即我握住他的颤抖的手，「把你知道的说出来，我想我可以帮到你。」
 【慕声】看了看我，微微的点点了头，说了起来。
-「那天，林海向疯子一样跑到我的房间，」
+「那天，林海向疯子一样跑到我的房间，奇奇怪怪的问我，为什么要这样做。我很害怕，」
 「勇士？」我打断了他的叙述，说出了疑问，「勇士是个什么样的东西？」
 「他是江医生送给我礼物，说我就跟那个勇士一样勇敢，所以他是我最珍贵的礼物。但是我明明拿的是勇士的刀，为什么会变成那把水果刀，我真的不知道怎么回事，警官，我不知道会那样，我没有想过拿水果刀杀人。」
 我又拍了拍【慕声】，「你慢慢说，我相信你。你说的水果刀又是怎么回事？」
@@ -259,10 +259,10 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ4MjUzNDExNCwxOTkwMTEzNjM5LC0yMD
-M5ODA5MDQ4LC00Mjg0MjU2MzYsLTE1NTk2OTUwOTQsLTczODUz
-ODU2OSw2MjgyOTI5MCwxODY5ODk4MjgyLC05MTgzNDE0NTcsLT
-EzNjE5MjcxMiwzODgwMDkzNDEsLTIwNTg0MDM5ODcsODU2Mjg2
-OTAsLTIwNDA0ODkxNjcsNjg0NzUyNTAzLC0yMDY5NDk1Nzg3XX
-0=
+eyJoaXN0b3J5IjpbLTE3NTQ0OTk5ODMsMTk5MDExMzYzOSwtMj
+AzOTgwOTA0OCwtNDI4NDI1NjM2LC0xNTU5Njk1MDk0LC03Mzg1
+Mzg1NjksNjI4MjkyOTAsMTg2OTg5ODI4MiwtOTE4MzQxNDU3LC
+0xMzYxOTI3MTIsMzg4MDA5MzQxLC0yMDU4NDAzOTg3LDg1NjI4
+NjkwLC0yMDQwNDg5MTY3LDY4NDc1MjUwMywtMjA2OTQ5NTc4N1
+19
 -->
