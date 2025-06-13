@@ -134,7 +134,9 @@
 我看得出他的担忧，随即我握住他的颤抖的手，「把你知道的说出来，我想我可以帮到你。」
 【慕声】看了看我，微微的点点了头，说了起来。
 「那天，林海向疯子一样跑到我的房间，奇奇怪怪的问我，为什么要这样做。我很害怕，他不停地拽着我，我就往外跑，他就追着我，他打我，我就跟他扭打在地上，慌乱间我摸到他身上的东西，我就往他身上扎。然后不知道怎么回事，我仿佛看到了大哥，等我反应过来，他已经倒在地上，我很害怕。」
-随后
+随后【慕声】又悄悄的对我说：“告诉你一个秘密，我的大哥好像回来了。就是你知道三只小猪吗？”
+我随即想到【慕声】版本的三只小猪，“勇猛的大哥？”
+
 【慕声】说着说着开始语无伦次，大致的事情经过我已经了解，不管【慕声】是否说了谎，但是传递了几个重要信息。
 我安抚了一会【慕声】，并安排其他人照看他，随后跟小李走出了审讯室。
 「你觉得【慕声】说的话有几分真假？」我问一旁的小李。
@@ -248,10 +250,10 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4MzE2NDMwMzgsLTEyMTQ2MjE2MDksMT
-k5MDExMzYzOSwtMjAzOTgwOTA0OCwtNDI4NDI1NjM2LC0xNTU5
-Njk1MDk0LC03Mzg1Mzg1NjksNjI4MjkyOTAsMTg2OTg5ODI4Mi
-wtOTE4MzQxNDU3LC0xMzYxOTI3MTIsMzg4MDA5MzQxLC0yMDU4
-NDAzOTg3LDg1NjI4NjkwLC0yMDQwNDg5MTY3LDY4NDc1MjUwMy
-wtMjA2OTQ5NTc4N119
+eyJoaXN0b3J5IjpbMTE2Mjc0MTIxMiwtMTIxNDYyMTYwOSwxOT
+kwMTEzNjM5LC0yMDM5ODA5MDQ4LC00Mjg0MjU2MzYsLTE1NTk2
+OTUwOTQsLTczODUzODU2OSw2MjgyOTI5MCwxODY5ODk4MjgyLC
+05MTgzNDE0NTcsLTEzNjE5MjcxMiwzODgwMDkzNDEsLTIwNTg0
+MDM5ODcsODU2Mjg2OTAsLTIwNDA0ODkxNjcsNjg0NzUyNTAzLC
+0yMDY5NDk1Nzg3XX0=
 -->
