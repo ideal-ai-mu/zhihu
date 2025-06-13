@@ -211,7 +211,8 @@
 我苦笑，看来他是误会了，“你误会了，林海并不是你所谓的卧底，他进精神病院是为了和你同归于尽，而他只是碰巧遇到你们腌臜的勾当，可能是因为内心的那点善，才主动收集了你们的罪证。”
 “原来是这样，倒也像他。”
 “林海的死真和你没关？”
-“虽然我恨他，但他却是林雪的父亲，况且最主要的是，如果精神病院死人，对我们这个地下贩卖机构会有很大影响，怕被盯上，你知道我们希望风评浪静。我又不是个傻子。”江真嘲讽说j
+“虽然我恨他，但他却是林雪的父亲，况且最主要的是，如果精神病院死人，对我们这个地下贩卖机构会有很大影响，怕被盯上，你知道我们希望风评浪静。我又不是个傻子。”江真嘲讽说继续道，“视频了不是很清楚么，是慕涛的第二人格【慕声】杀的吗？”
+“如你所说，【慕声】本来是个懦弱的人，怎么hui”
 
 
 
@@ -257,7 +258,7 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwNTc5MDAzMDQsLTE1NTk2OTUwOTQsLT
+eyJoaXN0b3J5IjpbLTE2NjE4MTkwMzEsLTE1NTk2OTUwOTQsLT
 czODUzODU2OSw2MjgyOTI5MCwxODY5ODk4MjgyLC05MTgzNDE0
 NTcsLTEzNjE5MjcxMiwzODgwMDkzNDEsLTIwNTg0MDM5ODcsOD
 U2Mjg2OTAsLTIwNDA0ODkxNjcsNjg0NzUyNTAzLC0yMDY5NDk1
