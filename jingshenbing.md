@@ -188,7 +188,7 @@
 果然如我猜测那般，这一切并非偶然，原来这个帖子就是慕雪依据林海的事迹写的，只是预先设计好的结局并未如林海所愿。慕雪再也没说其他的东西，可能是怕惹上不必要的麻烦。
 我迫不及待的登录了林海的Truth，看着每一条林海的记录。
 当我看到林海写到，“我终于找到当年那个害死你的始作俑者，没想到他竟然当了医生，还改名叫江真。雪儿，这一次我已一定不会放过他。”上面还附着一张江真的照片，看着这张照片，算是我之前的猜想都已经得到证实。
-我继续看下去，不过是他的一步步计划
+我继续看下去，不过是林海他的一步步计划。而更让我惊讶的是，林海竟然拍摄了很多这家精神病院的黑幕，
 
 08
 
@@ -238,8 +238,8 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExMzkxMjUyNjUsLTczODUzODU2OSw2Mj
-gyOTI5MCwxODY5ODk4MjgyLC05MTgzNDE0NTcsLTEzNjE5Mjcx
-MiwzODgwMDkzNDEsLTIwNTg0MDM5ODcsODU2Mjg2OTAsLTIwND
-A0ODkxNjcsNjg0NzUyNTAzLC0yMDY5NDk1Nzg3XX0=
+eyJoaXN0b3J5IjpbMTQ3NDI1NjEyMiwtNzM4NTM4NTY5LDYyOD
+I5MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1NywtMTM2MTkyNzEy
+LDM4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NTYyODY5MCwtMjA0MD
+Q4OTE2Nyw2ODQ3NTI1MDMsLTIwNjk0OTU3ODddfQ==
 -->
