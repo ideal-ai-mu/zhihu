@@ -74,9 +74,8 @@
 讲真思索了片刻，道：「三只小猪。」
 「三只小猪？」
 「一个很离奇的故事。」江真喝了口桌子上的咖啡。
-「三只小猪是三兄弟，老大勇敢，老二聪明，老三胆小。他们生活在一个非常和睦的家庭里，他们有爱他们的爸爸妈妈。但是有一天有一个怪物闯进了他们的世界，怪物杀了爸爸，带走了妈妈。大哥就跑出去找他们的妈妈，要去杀了怪物把妈妈救回来。但是大哥那天走之后再也没有回来。」### 这里其实老大是老三幻想出来的有这么一个人格存在，而并非真实人格。老二为了保护弟弟，在弟弟死之后愧疚让他弟弟的人格住了进来，但是又排斥他。
-###而医生早已发现，所以利用老三幻想人格杀人、幻想自己是一个勇敢的人，让林海去嘲讽他，引诱他说如果你不做大哥那样的人妈妈永远不会回来。
-「等等……」我似乎想到一个可怕的事情，「你是说，其实他有三个人格？」###其实没有第三人格
+「三只小猪是三兄弟，老大勇敢，老二聪明，老三胆小。他们生活在一个非常和睦的家庭里，他们有爱他们的爸爸妈妈。但是有一天有一个怪物闯进了他们的世界，怪物杀了爸爸，带走了妈妈。大哥就跑出去找他们的妈妈，要去杀了怪物把妈妈救回来。但是大哥那天走之后再也没有回来。」### 他说的是真的
+「等等……」我似乎想到一个可怕的事情，「你是说，其实他有三个人格？」###其实有第个人格，慕雪，双爆胎慕声
 江真似乎有意等我问，随后他道：「我不是特别清楚，但是有时候我看得出他不同于慕涛和【慕声】。」###撒谎
 「监控里杀人的那个人，陈警官觉得是慕涛还是【慕声】，或是三只小猪中的老大？」
 「这么一说，确实不太像慕声，莫非真的是第三个人格出现了？」
@@ -248,10 +247,10 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyMTQ2MjE2MDksMTk5MDExMzYzOSwtMj
-AzOTgwOTA0OCwtNDI4NDI1NjM2LC0xNTU5Njk1MDk0LC03Mzg1
-Mzg1NjksNjI4MjkyOTAsMTg2OTg5ODI4MiwtOTE4MzQxNDU3LC
-0xMzYxOTI3MTIsMzg4MDA5MzQxLC0yMDU4NDAzOTg3LDg1NjI4
-NjkwLC0yMDQwNDg5MTY3LDY4NDc1MjUwMywtMjA2OTQ5NTc4N1
-19
+eyJoaXN0b3J5IjpbMTQ1NjI2NDY1OSwtMTIxNDYyMTYwOSwxOT
+kwMTEzNjM5LC0yMDM5ODA5MDQ4LC00Mjg0MjU2MzYsLTE1NTk2
+OTUwOTQsLTczODUzODU2OSw2MjgyOTI5MCwxODY5ODk4MjgyLC
+05MTgzNDE0NTcsLTEzNjE5MjcxMiwzODgwMDkzNDEsLTIwNTg0
+MDM5ODcsODU2Mjg2OTAsLTIwNDA0ODkxNjcsNjg0NzUyNTAzLC
+0yMDY5NDk1Nzg3XX0=
 -->
