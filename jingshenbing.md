@@ -211,7 +211,7 @@
 我苦笑，看来他是误会了，“你误会了，林海并不是你所谓的卧底，他进精神病院是为了和你同归于尽，而他只是碰巧遇到你们腌臜的勾当，可能是因为内心的那点善，才主动收集了你们的罪证。”
 “原来是这样，倒也像他。”
 “林海的死真和你没关？”
-“虽然我恨他，但是”
+“虽然我恨他，但他却是林雪的父亲，况且最主要的是，如果ji”
 
 
 
@@ -257,9 +257,9 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1MDM4MzkyOTEsLTE1NTk2OTUwOTQsLT
-czODUzODU2OSw2MjgyOTI5MCwxODY5ODk4MjgyLC05MTgzNDE0
-NTcsLTEzNjE5MjcxMiwzODgwMDkzNDEsLTIwNTg0MDM5ODcsOD
-U2Mjg2OTAsLTIwNDA0ODkxNjcsNjg0NzUyNTAzLC0yMDY5NDk1
-Nzg3XX0=
+eyJoaXN0b3J5IjpbLTc3MDg3ODM1MSwtMTU1OTY5NTA5NCwtNz
+M4NTM4NTY5LDYyODI5MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1
+NywtMTM2MTkyNzEyLDM4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NT
+YyODY5MCwtMjA0MDQ4OTE2Nyw2ODQ3NTI1MDMsLTIwNjk0OTU3
+ODddfQ==
 -->
