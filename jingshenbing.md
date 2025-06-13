@@ -192,7 +192,8 @@
 看着这一张张照片，我气得咬牙切齿，我死死的攥紧拳头，暗道：“原来我第一次去那家精神病院感到的压抑，并非来自陌生，而是那群病人惊恐的眼神。”
 天使与恶魔有时候会是同一个人。
 08
-第二天上午我拉着大伙开了次紧急会议，梳理我所知道的事情和证据。六年前，死者的林海的女儿林雪传出和同校一个男生的绯闻，男生因为此事转学，而林雪受到同学的嘲讽跳楼自杀。
+第二天上午我拉着大伙开了次紧急会议，梳理我所知道的事情和证据。
+十二年前，死者的林海的女儿林雪传出和同校一个男生的绯闻，男生因为此事转学，而林雪受到同学的嘲讽跳楼自杀。林海伤痛欲绝，把女儿林雪的死归咎于那个男生，经过d
 
 
 
@@ -239,7 +240,7 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTIyNjE3NDUwNiwtNzM4NTM4NTY5LDYyOD
+eyJoaXN0b3J5IjpbLTU5NTEwNDI1NywtNzM4NTM4NTY5LDYyOD
 I5MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1NywtMTM2MTkyNzEy
 LDM4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NTYyODY5MCwtMjA0MD
 Q4OTE2Nyw2ODQ3NTI1MDMsLTIwNjk0OTU3ODddfQ==
