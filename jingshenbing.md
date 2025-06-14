@@ -226,7 +226,10 @@
 我望向他，原来他那份消瘦是病魔的折磨，那种心酸无无奈瞬间用上了我的心头，我所纠结的事情已没有任何意义。我点了点头算是答应了他。
 
 11
-几天后，我接到一个电话，是一个律师打过来的，律师说慕涛的遗属提到了我给他办葬礼，问我是否愿意。我想起来当初答应过他，便同意了，
+几天后，我接到一个电话，是一个律师打过来的，律师说慕涛的遗属提到了我给他办葬礼，问我是否愿意。我想起来当初答应过他，便同意了。
+我见到那个律师之后，律师把遗嘱和慕涛的遗言给了我。
+慕涛遗言：
+陈警官。很高兴你履行了你的承诺
 
 
 
@@ -272,11 +275,11 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwMzgwMDg0MSwtNDM4MjkzODUsMTc2OT
-YyMjQ0Myw1MDE0NDU0MzAsNjQwOTI5MjU5LC0xNjQzMDQxNTU1
-LC0xMjE0NjIxNjA5LDE5OTAxMTM2MzksLTIwMzk4MDkwNDgsLT
-QyODQyNTYzNiwtMTU1OTY5NTA5NCwtNzM4NTM4NTY5LDYyODI5
-MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1NywtMTM2MTkyNzEyLD
-M4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NTYyODY5MCwtMjA0MDQ4
-OTE2N119
+eyJoaXN0b3J5IjpbMzU3ODg5Nzc1LC00MzgyOTM4NSwxNzY5Nj
+IyNDQzLDUwMTQ0NTQzMCw2NDA5MjkyNTksLTE2NDMwNDE1NTUs
+LTEyMTQ2MjE2MDksMTk5MDExMzYzOSwtMjAzOTgwOTA0OCwtND
+I4NDI1NjM2LC0xNTU5Njk1MDk0LC03Mzg1Mzg1NjksNjI4Mjky
+OTAsMTg2OTg5ODI4MiwtOTE4MzQxNDU3LC0xMzYxOTI3MTIsMz
+g4MDA5MzQxLC0yMDU4NDAzOTg3LDg1NjI4NjkwLC0yMDQwNDg5
+MTY3XX0=
 -->
