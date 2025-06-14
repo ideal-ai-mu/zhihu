@@ -218,7 +218,7 @@
 再一次一次见到慕涛，他消瘦了很多，“我们又见面了。”
 他笑了笑，“陈警官，好久不见。我不会又摊上事了吧？”
 我摇了摇头，毕竟一切都是我的猜测，我没有任何证据，但是我还是想把我的想法与他说，“我想给你讲个故事，关于你的一个故事。”
-“十二年前，有个少年他叫慕涛，在当地的一所高中上学。这个期间，他喜欢上了一个女孩，那个女孩甚至都不知道他叫什么。他就这么喜欢着，有一天他鼓起了勇气给那个女孩写了一封表白的情书，他甚至署名都不敢用真名，他说他叫慕雪。不就之后，他得知那个女孩和其他的一个男生传出绯闻，女孩死了。那个女孩叫林雪。多年以后，他在Truth上注册了一个账号，叫慕雪，从此之后小有名气。三年前，他认识林海的父亲，便为林海定制了一套杀人计划，而要杀之人便是十二年前林雪绯闻男生江真。他与林海约定，这一切与他无关，他将自己抛的干干净净。他之所以帮助林海，是因为他也恨江真，同时他也恨林海，那个害死
+“十二年前，有个少年他叫慕涛，在当地的一所高中上学。这个期间，他喜欢上了一个女孩，那个女孩甚至都不知道他叫什么。他就这么喜欢着，有一天他鼓起了勇气给那个女孩写了一封表白的情书，他甚至署名都不敢用真名，他说他叫慕雪。不就之后，他得知那个女孩和其他的一个男生传出绯闻，女孩死了。那个女孩叫林雪。多年以后，他在Truth上注册了一个账号，叫慕雪，从此之后小有名气。三年前，他认识了林海，林雪的父亲，便为林海定制了一套杀人计划，而要杀之人便是十二年前林雪绯闻男生江真。他与林海约定，这一切与他无关，他将自己抛的干干净净。他之所以帮助林海，是因为他也恨江真，同时他也恨林海，那个间接害死自己女儿的父亲。他们的计划很顺利，两人先后进了
 ”
 
 
@@ -262,11 +262,11 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbODYxNzM2MjM5LDE3Njk2MjI0NDMsNTAxND
-Q1NDMwLDY0MDkyOTI1OSwtMTY0MzA0MTU1NSwtMTIxNDYyMTYw
-OSwxOTkwMTEzNjM5LC0yMDM5ODA5MDQ4LC00Mjg0MjU2MzYsLT
-E1NTk2OTUwOTQsLTczODUzODU2OSw2MjgyOTI5MCwxODY5ODk4
-MjgyLC05MTgzNDE0NTcsLTEzNjE5MjcxMiwzODgwMDkzNDEsLT
-IwNTg0MDM5ODcsODU2Mjg2OTAsLTIwNDA0ODkxNjcsNjg0NzUy
-NTAzXX0=
+eyJoaXN0b3J5IjpbLTM1MDI2NTQwNSwxNzY5NjIyNDQzLDUwMT
+Q0NTQzMCw2NDA5MjkyNTksLTE2NDMwNDE1NTUsLTEyMTQ2MjE2
+MDksMTk5MDExMzYzOSwtMjAzOTgwOTA0OCwtNDI4NDI1NjM2LC
+0xNTU5Njk1MDk0LC03Mzg1Mzg1NjksNjI4MjkyOTAsMTg2OTg5
+ODI4MiwtOTE4MzQxNDU3LC0xMzYxOTI3MTIsMzg4MDA5MzQxLC
+0yMDU4NDAzOTg3LDg1NjI4NjkwLC0yMDQwNDg5MTY3LDY4NDc1
+MjUwM119
 -->
