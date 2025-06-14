@@ -214,8 +214,8 @@
 10
 江真案很快下来了，毋庸置疑是死刑。而林海案是判了过失杀人，加上当时嫌疑犯是精神病这种特殊情况，慕涛最后随着原精神病人一起转院了，但也一直在新的精神病院处于监禁状态。
 我本来以为事情到了这里已经结束了，当我拆开哪些从江真家中抄来的信件，那是当初林雪与江真的情书，却如江真所言，他们真的是互相喜欢。林雪有一封回信提到一个叫慕雪的人偷偷给她塞过小纸条被她狠狠的拒绝了，当我看到这样一条信息的时候，我在一次心跳加快，不是因为别的，而是因为慕雪这个名字。
-我隐隐觉得这个慕雪和Truth上的那个慕雪是同一个人。Truth上，慕雪早已给我拉黑，从那之后再也没回过任何消息。我立马拉着小李去了学校，找出了12年前学生的花名册，可是没有一个叫慕雪的人，正当我快被折磨的魔怔的时候，小李指着花名册上我们在熟悉不过的两个字——慕涛。我发了疯念道：“都错了，都错了，他骗了所有人，甚至骗了他自己。”
-在一次见到慕涛，他消瘦了很多，
+我隐隐觉得这个慕雪和Truth上的那个慕雪是同一个人。Truth上，慕雪早已给我拉黑，从那之后再也没回过任何消息。我立马拉着小李去了学校，找出了十二年前年前学生的花名册，可是没有一个叫慕雪的人，正当我快被折磨的魔怔的时候，小李指着花名册上我们在熟悉不过的两个字——慕涛。我发了疯念道：“都错了，都错了，他骗了所有人，甚至骗了他自己。”
+再一次一次见到慕涛，他消瘦了很多，“”
 
 
 
@@ -258,11 +258,11 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU2MDk2OTE4OCw1MDE0NDU0MzAsNjQwOT
-I5MjU5LC0xNjQzMDQxNTU1LC0xMjE0NjIxNjA5LDE5OTAxMTM2
-MzksLTIwMzk4MDkwNDgsLTQyODQyNTYzNiwtMTU1OTY5NTA5NC
-wtNzM4NTM4NTY5LDYyODI5MjkwLDE4Njk4OTgyODIsLTkxODM0
-MTQ1NywtMTM2MTkyNzEyLDM4ODAwOTM0MSwtMjA1ODQwMzk4Ny
-w4NTYyODY5MCwtMjA0MDQ4OTE2Nyw2ODQ3NTI1MDMsLTIwNjk0
-OTU3ODddfQ==
+eyJoaXN0b3J5IjpbLTE4MzMxMjkxNDYsNTAxNDQ1NDMwLDY0MD
+kyOTI1OSwtMTY0MzA0MTU1NSwtMTIxNDYyMTYwOSwxOTkwMTEz
+NjM5LC0yMDM5ODA5MDQ4LC00Mjg0MjU2MzYsLTE1NTk2OTUwOT
+QsLTczODUzODU2OSw2MjgyOTI5MCwxODY5ODk4MjgyLC05MTgz
+NDE0NTcsLTEzNjE5MjcxMiwzODgwMDkzNDEsLTIwNTg0MDM5OD
+csODU2Mjg2OTAsLTIwNDA0ODkxNjcsNjg0NzUyNTAzLC0yMDY5
+NDk1Nzg3XX0=
 -->
