@@ -222,7 +222,7 @@
 我一口气把我所想都说了出来。
 慕涛瞪大眼睛看了看我，“我不得不说你的故事很精彩，可惜他只是个故事。”
 我知道他不会承认，毕竟这些想法太匪夷所思，尤其利用人格杀人。
-“陈警官，我快死了，前几天我查出了癌症，是晚期。”
+“陈警官，我快死了，前几天我查出了癌症，是晚期。”慕声苦笑，“我的后世，你可以来帮我办吗？你知道的，我现在是一个人，我没有什么要求，简简单单的葬礼”
 
 
 
@@ -267,11 +267,11 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTQwMDU1ODIxMiwtNDM4MjkzODUsMTc2OT
-YyMjQ0Myw1MDE0NDU0MzAsNjQwOTI5MjU5LC0xNjQzMDQxNTU1
-LC0xMjE0NjIxNjA5LDE5OTAxMTM2MzksLTIwMzk4MDkwNDgsLT
-QyODQyNTYzNiwtMTU1OTY5NTA5NCwtNzM4NTM4NTY5LDYyODI5
-MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1NywtMTM2MTkyNzEyLD
-M4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NTYyODY5MCwtMjA0MDQ4
-OTE2N119
+eyJoaXN0b3J5IjpbLTExMDYzOTE4NTgsLTQzODI5Mzg1LDE3Nj
+k2MjI0NDMsNTAxNDQ1NDMwLDY0MDkyOTI1OSwtMTY0MzA0MTU1
+NSwtMTIxNDYyMTYwOSwxOTkwMTEzNjM5LC0yMDM5ODA5MDQ4LC
+00Mjg0MjU2MzYsLTE1NTk2OTUwOTQsLTczODUzODU2OSw2Mjgy
+OTI5MCwxODY5ODk4MjgyLC05MTgzNDE0NTcsLTEzNjE5MjcxMi
+wzODgwMDkzNDEsLTIwNTg0MDM5ODcsODU2Mjg2OTAsLTIwNDA0
+ODkxNjddfQ==
 -->
