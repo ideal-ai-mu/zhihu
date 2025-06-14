@@ -223,7 +223,11 @@
 慕涛瞪大眼睛看了看我，“我不得不说你的故事很精彩，可惜他只是个故事。”
 我知道他不会承认，毕竟这些想法太匪夷所思，尤其利用人格杀人。
 “陈警官，我快死了，前几天我查出了癌症，是晚期。”慕涛苦笑，“我的后事，你可以来帮我办吗？你知道的，我现在是一个人，我没有什么要求，简简单单的葬了就行。”
-我望向他，原来他那份消瘦是病魔的折磨，那种心酸无无奈瞬间用上了我的心头，我所纠结的事情已没有任何意义，
+我望向他，原来他那份消瘦是病魔的折磨，那种心酸无无奈瞬间用上了我的心头，我所纠结的事情已没有任何意义。我点了点头算是答应了他。
+
+11
+几天后，
+
 
 
 
@@ -268,7 +272,7 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTgwMDkzNTUwNSwtNDM4MjkzODUsMTc2OT
+eyJoaXN0b3J5IjpbMTQ2ODcyNDgyMSwtNDM4MjkzODUsMTc2OT
 YyMjQ0Myw1MDE0NDU0MzAsNjQwOTI5MjU5LC0xNjQzMDQxNTU1
 LC0xMjE0NjIxNjA5LDE5OTAxMTM2MzksLTIwMzk4MDkwNDgsLT
 QyODQyNTYzNiwtMTU1OTY5NTA5NCwtNzM4NTM4NTY5LDYyODI5
