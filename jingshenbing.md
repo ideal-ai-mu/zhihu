@@ -229,7 +229,7 @@
 几天后，我接到一个电话，是一个律师打过来的，律师说慕涛自杀了。慕涛的遗属提到了让我给他办葬礼，律师问我是否愿意。我想起来当初答应过他，便同意了。
 我见到那个律师之后，律师把遗嘱和慕涛的遗言给了我。
 慕涛遗言：
-陈警官。很高兴你履行了你的承诺。也是因为你能履行承诺，才会看到这个遗言。huoxu
+陈警官。很高兴你履行了你的承诺。也是因为你能履行承诺，才会看到这个遗言，才能让你的故事变得完美。在我五岁之前，我一直生活在山里，我叫慕雪。
 
 
 
@@ -275,11 +275,11 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNTQ1Nzk3ODA1LC00MzgyOTM4NSwxNzY5Nj
-IyNDQzLDUwMTQ0NTQzMCw2NDA5MjkyNTksLTE2NDMwNDE1NTUs
-LTEyMTQ2MjE2MDksMTk5MDExMzYzOSwtMjAzOTgwOTA0OCwtND
-I4NDI1NjM2LC0xNTU5Njk1MDk0LC03Mzg1Mzg1NjksNjI4Mjky
-OTAsMTg2OTg5ODI4MiwtOTE4MzQxNDU3LC0xMzYxOTI3MTIsMz
-g4MDA5MzQxLC0yMDU4NDAzOTg3LDg1NjI4NjkwLC0yMDQwNDg5
-MTY3XX0=
+eyJoaXN0b3J5IjpbLTQwMDYwODE4OSwtNDM4MjkzODUsMTc2OT
+YyMjQ0Myw1MDE0NDU0MzAsNjQwOTI5MjU5LC0xNjQzMDQxNTU1
+LC0xMjE0NjIxNjA5LDE5OTAxMTM2MzksLTIwMzk4MDkwNDgsLT
+QyODQyNTYzNiwtMTU1OTY5NTA5NCwtNzM4NTM4NTY5LDYyODI5
+MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1NywtMTM2MTkyNzEyLD
+M4ODAwOTM0MSwtMjA1ODQwMzk4Nyw4NTYyODY5MCwtMjA0MDQ4
+OTE2N119
 -->
