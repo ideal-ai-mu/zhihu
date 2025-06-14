@@ -217,7 +217,9 @@
 我隐隐觉得这个慕雪和Truth上的那个慕雪是同一个人。Truth上，慕雪早已给我拉黑，从那之后再也没回过任何消息。我立马拉着小李去了学校，找出了十二年前年前学生的花名册，可是没有一个叫慕雪的人，正当我快被折磨的魔怔的时候，小李指着花名册上我们在熟悉不过的两个字——慕涛。我发了疯念道：“都错了，都错了，他骗了所有人，甚至骗了他自己。”
 再一次一次见到慕涛，他消瘦了很多，“我们又见面了。”
 他笑了笑，“陈警官，好久不见。我不会又摊上事了吧？”
-我摇了摇头，毕竟一切都是我的猜测，我没有任何证据。
+我摇了摇头，毕竟一切都是我的猜测，我没有任何证据，但是我还是想把我的想法与他说，“我想给你讲个故事，关于你的一个故事。”
+“
+”
 
 
 
@@ -260,11 +262,11 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2MjE3MDkwNDYsNTAxNDQ1NDMwLDY0MD
-kyOTI1OSwtMTY0MzA0MTU1NSwtMTIxNDYyMTYwOSwxOTkwMTEz
-NjM5LC0yMDM5ODA5MDQ4LC00Mjg0MjU2MzYsLTE1NTk2OTUwOT
-QsLTczODUzODU2OSw2MjgyOTI5MCwxODY5ODk4MjgyLC05MTgz
-NDE0NTcsLTEzNjE5MjcxMiwzODgwMDkzNDEsLTIwNTg0MDM5OD
-csODU2Mjg2OTAsLTIwNDA0ODkxNjcsNjg0NzUyNTAzLC0yMDY5
-NDk1Nzg3XX0=
+eyJoaXN0b3J5IjpbLTk4MTA1MzQxLDUwMTQ0NTQzMCw2NDA5Mj
+kyNTksLTE2NDMwNDE1NTUsLTEyMTQ2MjE2MDksMTk5MDExMzYz
+OSwtMjAzOTgwOTA0OCwtNDI4NDI1NjM2LC0xNTU5Njk1MDk0LC
+03Mzg1Mzg1NjksNjI4MjkyOTAsMTg2OTg5ODI4MiwtOTE4MzQx
+NDU3LC0xMzYxOTI3MTIsMzg4MDA5MzQxLC0yMDU4NDAzOTg3LD
+g1NjI4NjkwLC0yMDQwNDg5MTY3LDY4NDc1MjUwMywtMjA2OTQ5
+NTc4N119
 -->
