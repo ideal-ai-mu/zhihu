@@ -46,7 +46,7 @@
 「那么你觉得人是【慕声】所为吗？你心中是怎么想的？」
 我看到慕涛坚定的摇了摇头，「即使有视频为证，胆小鬼终究是胆小鬼，他不可能会杀人。」
 我对他所说的话半信半疑，相信是因为他坚定的眼神，怀疑当然是因为他是病人。
-「陈警官，【慕声】和江真走的很近，我想问江真比问我更有价值一些。」慕涛说了之后，故意打了个哈欠，是做给我看的，我知道他已不在会说什么。###从其他病人那得知，后面解释
+「陈警官，【慕声】和江真走的很近，我想问江真比问我更有价值一些。」慕涛说了之后，故意打了个哈欠，是做给我看的，我知道他已不在会说什么。
 江真，这个名字我有印象，是精神病院中的一位医师，这次询问并不是没有收获，至少接下来有两件事要做，我拍了怕慕涛的肩膀，让他有什么其他想法及时告诉我。
 我推开房门，故意留下一道缝隙，想试探他的反应。却没想到，在那微弱的光线中，我捕捉到一双深邃如无底深渊的眼睛，正透过门缝直直地盯着我。刹那间，一句话涌上心头：「当你凝视深渊时，深渊也在凝视你。」
 
@@ -233,11 +233,11 @@
 慕雪留。
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTI1MzU1ODE5NSwtMTIxNzE1NDEzMywxNT
-QyMjY3Nzk3LC00MzgyOTM4NSwxNzY5NjIyNDQzLDUwMTQ0NTQz
-MCw2NDA5MjkyNTksLTE2NDMwNDE1NTUsLTEyMTQ2MjE2MDksMT
-k5MDExMzYzOSwtMjAzOTgwOTA0OCwtNDI4NDI1NjM2LC0xNTU5
-Njk1MDk0LC03Mzg1Mzg1NjksNjI4MjkyOTAsMTg2OTg5ODI4Mi
-wtOTE4MzQxNDU3LC0xMzYxOTI3MTIsMzg4MDA5MzQxLC0yMDU4
-NDAzOTg3XX0=
+eyJoaXN0b3J5IjpbLTE0ODQ5NDEwMDEsLTI1MzU1ODE5NSwtMT
+IxNzE1NDEzMywxNTQyMjY3Nzk3LC00MzgyOTM4NSwxNzY5NjIy
+NDQzLDUwMTQ0NTQzMCw2NDA5MjkyNTksLTE2NDMwNDE1NTUsLT
+EyMTQ2MjE2MDksMTk5MDExMzYzOSwtMjAzOTgwOTA0OCwtNDI4
+NDI1NjM2LC0xNTU5Njk1MDk0LC03Mzg1Mzg1NjksNjI4MjkyOT
+AsMTg2OTg5ODI4MiwtOTE4MzQxNDU3LC0xMzYxOTI3MTIsMzg4
+MDA5MzQxXX0=
 -->
