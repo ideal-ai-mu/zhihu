@@ -44,7 +44,7 @@
 「对待这件事，你有什么看法呢？毕竟他是你弟弟，我想你是相对比较了解他的。」
 「陈警官，你错了。我并不了解他，他藏了太多事情，他一直有事瞒着我。我之前给他留过信，但是他从来不回我，他是一个孤僻的人，他甚至觉得我不应该存在；他更是一个自私的人，直到遇到麻烦才想起来找我。」慕涛的眼神中闪过几丝怨恨，但很快就消散了，看得出他能够很好的控制自己的负面过激情绪。
 「那么你觉得人是【慕声】所为吗？你心中是怎么想的？」
-我看到慕涛摇了摇头，又坚定道：「我不知道，有可能胆小鬼」
+我看到慕涛摇了摇头，又坚定道：「我不知道，有可能胆小鬼被压抑久了开始反抗了。」
 我对他所说的话半信半疑，相信是因为他坚定的眼神，怀疑当然是因为他是病人。
 「陈警官，【慕声】和江真走的很近，我想问江真比问我更有价值一些。」慕涛说了之后，故意打了个哈欠，是做给我看的，我知道他已不在会说什么。
 江真，这个名字我有印象，是精神病院中的一位医师，这次询问并不是没有收获，至少接下来有两件事要做，我拍了怕慕涛的肩膀，让他有什么其他想法及时告诉我。
@@ -233,11 +233,11 @@
 慕雪留。
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzODAyODI5NjUsLTI1MzU1ODE5NSwtMT
-IxNzE1NDEzMywxNTQyMjY3Nzk3LC00MzgyOTM4NSwxNzY5NjIy
-NDQzLDUwMTQ0NTQzMCw2NDA5MjkyNTksLTE2NDMwNDE1NTUsLT
-EyMTQ2MjE2MDksMTk5MDExMzYzOSwtMjAzOTgwOTA0OCwtNDI4
-NDI1NjM2LC0xNTU5Njk1MDk0LC03Mzg1Mzg1NjksNjI4MjkyOT
-AsMTg2OTg5ODI4MiwtOTE4MzQxNDU3LC0xMzYxOTI3MTIsMzg4
-MDA5MzQxXX0=
+eyJoaXN0b3J5IjpbMTUxMzE3NDcwNiwtMjUzNTU4MTk1LC0xMj
+E3MTU0MTMzLDE1NDIyNjc3OTcsLTQzODI5Mzg1LDE3Njk2MjI0
+NDMsNTAxNDQ1NDMwLDY0MDkyOTI1OSwtMTY0MzA0MTU1NSwtMT
+IxNDYyMTYwOSwxOTkwMTEzNjM5LC0yMDM5ODA5MDQ4LC00Mjg0
+MjU2MzYsLTE1NTk2OTUwOTQsLTczODUzODU2OSw2MjgyOTI5MC
+wxODY5ODk4MjgyLC05MTgzNDE0NTcsLTEzNjE5MjcxMiwzODgw
+MDkzNDFdfQ==
 -->
