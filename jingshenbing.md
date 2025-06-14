@@ -218,7 +218,7 @@
 再一次一次见到慕涛，他消瘦了很多，“我们又见面了。”
 他笑了笑，“陈警官，好久不见。我不会又摊上事了吧？”
 我摇了摇头，毕竟一切都是我的猜测，我没有任何证据，但是我还是想把我的想法与他说，“我想给你讲个故事，关于你的一个故事。”
-“
+“十二年前，有个少年他叫慕涛，在当地的一所高中上学。这个期间，他喜欢上了一个女孩，
 ”
 
 
@@ -262,7 +262,7 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTk4MTA1MzQxLDUwMTQ0NTQzMCw2NDA5Mj
+eyJoaXN0b3J5IjpbNjQ3OTgyMDcwLDUwMTQ0NTQzMCw2NDA5Mj
 kyNTksLTE2NDMwNDE1NTUsLTEyMTQ2MjE2MDksMTk5MDExMzYz
 OSwtMjAzOTgwOTA0OCwtNDI4NDI1NjM2LC0xNTU5Njk1MDk0LC
 03Mzg1Mzg1NjksNjI4MjkyOTAsMTg2OTg5ODI4MiwtOTE4MzQx
