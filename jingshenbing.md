@@ -218,7 +218,7 @@
 再一次一次见到慕涛，他消瘦了很多，“我们又见面了。”
 他笑了笑，“陈警官，好久不见。我不会又摊上事了吧？”
 我摇了摇头，毕竟一切都是我的猜测，我没有任何证据，但是我还是想把我的想法与他说，“我想给你讲个故事，关于你的一个故事。”
-“十二年前，有个少年他叫慕涛，在当地的一所高中上学。这个期间，他喜欢上了一个女孩，那个女孩甚至都不知道他叫什么。他就这么喜欢着，有一天他鼓起了勇气给那个女孩写了一封表白的情书，他甚至署名都不敢用真名，他说他叫慕雪。不就之后，他得知那个女孩和其他的一个男生传出绯闻，女孩死了。那个女孩叫林雪。多年以后，他在Truth上注册了一个账号，叫慕雪，从此
+“十二年前，有个少年他叫慕涛，在当地的一所高中上学。这个期间，他喜欢上了一个女孩，那个女孩甚至都不知道他叫什么。他就这么喜欢着，有一天他鼓起了勇气给那个女孩写了一封表白的情书，他甚至署名都不敢用真名，他说他叫慕雪。不就之后，他得知那个女孩和其他的一个男生传出绯闻，女孩死了。那个女孩叫林雪。多年以后，他在Truth上注册了一个账号，叫慕雪，从此之后小有名气。三年前，他认识林海的父亲，得知
 ”
 
 
@@ -262,11 +262,11 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTczOTMzNjQ4OSwxNzY5NjIyNDQzLDUwMT
-Q0NTQzMCw2NDA5MjkyNTksLTE2NDMwNDE1NTUsLTEyMTQ2MjE2
-MDksMTk5MDExMzYzOSwtMjAzOTgwOTA0OCwtNDI4NDI1NjM2LC
-0xNTU5Njk1MDk0LC03Mzg1Mzg1NjksNjI4MjkyOTAsMTg2OTg5
-ODI4MiwtOTE4MzQxNDU3LC0xMzYxOTI3MTIsMzg4MDA5MzQxLC
-0yMDU4NDAzOTg3LDg1NjI4NjkwLC0yMDQwNDg5MTY3LDY4NDc1
-MjUwM119
+eyJoaXN0b3J5IjpbMjU4NDI0MjU1LDE3Njk2MjI0NDMsNTAxND
+Q1NDMwLDY0MDkyOTI1OSwtMTY0MzA0MTU1NSwtMTIxNDYyMTYw
+OSwxOTkwMTEzNjM5LC0yMDM5ODA5MDQ4LC00Mjg0MjU2MzYsLT
+E1NTk2OTUwOTQsLTczODUzODU2OSw2MjgyOTI5MCwxODY5ODk4
+MjgyLC05MTgzNDE0NTcsLTEzNjE5MjcxMiwzODgwMDkzNDEsLT
+IwNTg0MDM5ODcsODU2Mjg2OTAsLTIwNDA0ODkxNjcsNjg0NzUy
+NTAzXX0=
 -->
