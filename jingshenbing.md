@@ -246,6 +246,8 @@
 
 
 
+
+
  ###  江真送给他的勇士模型被换成真的刀了。
 
 ###第二天晚上涛声依旧的自动回复为一个精神病人伪装杀人案件。
@@ -265,7 +267,7 @@
 ####
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjAxODI1MTA3LDE3Njk2MjI0NDMsNTAxND
+eyJoaXN0b3J5IjpbLTQzODI5Mzg1LDE3Njk2MjI0NDMsNTAxND
 Q1NDMwLDY0MDkyOTI1OSwtMTY0MzA0MTU1NSwtMTIxNDYyMTYw
 OSwxOTkwMTEzNjM5LC0yMDM5ODA5MDQ4LC00Mjg0MjU2MzYsLT
 E1NTk2OTUwOTQsLTczODUzODU2OSw2MjgyOTI5MCwxODY5ODk4
