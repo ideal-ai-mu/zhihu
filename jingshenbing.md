@@ -168,10 +168,10 @@
 「你好！」
 「我现在有事不在，并向你推荐了一个我写的帖子。」
 像他这种人难免不喜欢被别人打扰，设置自动回复是很常见的，我不死心，又发了一条信息，仍然是同样的自动回复，反正也没什么特别的事情，索性点开了他推荐的那篇帖子看了看。
-故事讲的是一个父亲为了替女儿报仇的故事。故事中的父亲开车意外撞死了一对母女，由于查出此人车内有大量精神病药物，在律师M的帮助下成功混进了精神病院手刃了间接害死女儿凶手的医生J，而撞死的母女就是W的妻女。其中的作案手法及其详细，包括这位父亲如何每周去精神病院治疗，如何随身携带药物，如何设计车祸，又如何杀害医生……
+故事讲的是一个父亲为了替女儿报仇的故事。故事中的父亲开车意外撞死了一对母女，由于查出此人车内有大量精神病药物，在律师M的帮助下成功混进了精神病院手刃了间接害死女儿凶手的医生J，而撞死的母女就是W的妻女。其中的作案手法极其详细，包括这位父亲如何每周去精神病院治疗，如何随身携带药物，如何设计车祸，又如何杀害医生……
 我看完之后，不知为何把这位父亲想成了林海，想到这里我瞬间满头大汗。林海就是如那位父亲一样开车撞了人，后因为精神病进了医院，只是并未撞死人。倘若江真就是故事里的医生J，那对母女真的像我们猜测那样是江真的妻女，那林海为女报仇，仇人是江真，江真，林雪。
 我瞬间一下子全明白了，江真就是当年疑似性骚扰林雪的那个男生，而我第一次看他眼熟便是如此，他竟然改名了。
-我立马打电话给小李：“小李，今晚让调查科的人查一查医生江真，以及当年林雪性侵案那个男生是不是现在的江真，明天务必给我结果。”
+我立马打电话给小李：“小李，今晚让调查科的人查一查医生江真，以及当年林雪性骚扰案那个男生是不是现在的江真，明天务必给我结果。”
 做完这一切之后，我在慕雪的聊天框里发了一条消息，“你认识林海吗？”
 我没再收到慕雪的自动回复，而是等了许久，他回道：“这是林海的Truth账号和密码，你看完之后就都明白了。至于我只不过是曾经帮助过林海的M律师，一个想把他从深渊里拉出来的人。前两天我得知他离世，便根据他之前的遗愿就是把他的Truth账号交给第一个向我问起他的人。”
 果然如我猜测那般，这一切并非偶然，原来这个帖子就是慕雪依据林海的事迹写的，只是预先设计好的结局并未如林海所愿。慕雪再也没说其他的东西，可能是怕惹上不必要的麻烦。
@@ -231,11 +231,11 @@
 慕雪留。
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTcxNTE3Nzk2LC0xODUzODA3NDcxLC02NT
-kyMDY5MDQsLTc4MjAxMjA3NiwxOTg4OTAyNjIyLC0xMTQwNTQx
-MjM1LC04MzAxNTk0MTQsMTQwOTkzODUzNSwxNjM0MjY1NjgyLC
-0yNTM1NTgxOTUsLTEyMTcxNTQxMzMsMTU0MjI2Nzc5NywtNDM4
-MjkzODUsMTc2OTYyMjQ0Myw1MDE0NDU0MzAsNjQwOTI5MjU5LC
-0xNjQzMDQxNTU1LC0xMjE0NjIxNjA5LDE5OTAxMTM2MzksLTIw
-Mzk4MDkwNDhdfQ==
+eyJoaXN0b3J5IjpbMjE0MTg0NTM3OCwtNzE1MTc3OTYsLTE4NT
+M4MDc0NzEsLTY1OTIwNjkwNCwtNzgyMDEyMDc2LDE5ODg5MDI2
+MjIsLTExNDA1NDEyMzUsLTgzMDE1OTQxNCwxNDA5OTM4NTM1LD
+E2MzQyNjU2ODIsLTI1MzU1ODE5NSwtMTIxNzE1NDEzMywxNTQy
+MjY3Nzk3LC00MzgyOTM4NSwxNzY5NjIyNDQzLDUwMTQ0NTQzMC
+w2NDA5MjkyNTksLTE2NDMwNDE1NTUsLTEyMTQ2MjE2MDksMTk5
+MDExMzYzOV19
 -->
