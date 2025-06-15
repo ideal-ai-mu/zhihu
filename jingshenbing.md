@@ -114,7 +114,7 @@
 「哥哥怎么都没想到一向胆小的弟弟却做出了如此胆大的行为。哥哥很内疚没有阻止弟弟。
 「这种内疚常年伴随着哥哥，于是哥哥做了个决定，他决定腾出身体一部分让弟弟住了进来。」
 我和小李听后目瞪口呆，这个故事太过诡异，而我和小李却未质疑它的真实性，因为他几乎和昨天小李调查的慕涛家庭情况一模一样。从来不存在勇猛的大哥，而这只不过是【慕声】所幻想的自己罢了，这也解释了【慕声】在杀林海所表现出的胆大行为。
-这也和江真猜测的第三人格格格不入，听了慕涛所讲，我更愿意相信慕涛的故事。
+这也和江真猜测的第三人不入，听了慕涛所讲，我更愿意相信慕涛的故事。
 而【慕声】站在他的角度，他觉得应该有一个勇猛的大哥，但是事实并没有，因此他把自己想象成那个勇猛的大哥，至于勇猛的那个幻想最后随着【慕声】出意外而从他心中消失和他说的大哥再也没回来看来也是一致的。
 这一次杀人难道是【慕声】心中那个勇猛又回来了？我开始对这一切猜测变得头疼，我快发现自己也不正常了。
 「这个故事你跟江真讲过没。」我没有在讲下去，反而看向慕涛问道。
@@ -232,11 +232,11 @@
 慕雪留。
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExNDA1NDEyMzUsLTgzMDE1OTQxNCwxND
-A5OTM4NTM1LDE2MzQyNjU2ODIsLTI1MzU1ODE5NSwtMTIxNzE1
-NDEzMywxNTQyMjY3Nzk3LC00MzgyOTM4NSwxNzY5NjIyNDQzLD
-UwMTQ0NTQzMCw2NDA5MjkyNTksLTE2NDMwNDE1NTUsLTEyMTQ2
-MjE2MDksMTk5MDExMzYzOSwtMjAzOTgwOTA0OCwtNDI4NDI1Nj
-M2LC0xNTU5Njk1MDk0LC03Mzg1Mzg1NjksNjI4MjkyOTAsMTg2
-OTg5ODI4Ml19
+eyJoaXN0b3J5IjpbMjAxMTU1MDExOSwtMTE0MDU0MTIzNSwtOD
+MwMTU5NDE0LDE0MDk5Mzg1MzUsMTYzNDI2NTY4MiwtMjUzNTU4
+MTk1LC0xMjE3MTU0MTMzLDE1NDIyNjc3OTcsLTQzODI5Mzg1LD
+E3Njk2MjI0NDMsNTAxNDQ1NDMwLDY0MDkyOTI1OSwtMTY0MzA0
+MTU1NSwtMTIxNDYyMTYwOSwxOTkwMTEzNjM5LC0yMDM5ODA5MD
+Q4LC00Mjg0MjU2MzYsLTE1NTk2OTUwOTQsLTczODUzODU2OSw2
+MjgyOTI5MF19
 -->
