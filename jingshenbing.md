@@ -189,10 +189,10 @@
 09
 江真坐在审讯室里，憔悴了很多，不像我第一次见他那般意气风发，接受他的毋庸置疑是死刑。“江医生，其实你一开始就知道林海是林雪的父亲吧！”
 江真疑惑的看了看我，随后似有所思，哀叹了一声，“果然，你都已经知道了。没错，我第一次见到他我就知道他是林雪的父亲。”
-“那你为什么还不断和他接触？你不知道他对你有多少恨？”
+“那你为什么还不断和他接触？你不知道他对你有多么的恨？”
 江真笑了笑，随后大声道：“林海就是个无耻的失责的父亲。你们查到的消息是不是都觉得是我害死了林雪。”
 我看向了江真，没有否认，似乎潜意识也是这么觉得，倘若没有他骚扰林雪，也不会有后来的事情。
-江真看了没说话的我，也明白了我所想，连忙说了两个好字，并继续道：“当年我与林雪是互相喜欢，只是一直隐瞒着所有人。在当时，高中谈恋爱被学校发现，后果会很严重。但是林海做了什么，他得知我和林雪的事，竟然以此来到我的家，威胁我的家人。最后如他所愿他得逞了。我转学没多久听到林雪的噩耗，那一刻我不比林海伤心。你现在觉得是谁害死了林雪。”
+江真看了没说话的我，也明白了我所想，连忙说了两个好字，并继续道：“当年我与林雪是互相喜欢，只是一直隐瞒着所有人。在当时，高中谈恋爱被学校发现，后果会很严重。但是林海做了什么，他得知我和林雪的事，竟然以此来到我的家，威胁我的家人，向我父母要钱。最后如他所愿他得逞了。我转学没多久就听到林雪的噩耗，那一刻我不比林海伤心。你现在觉得是谁害死了林雪。”
 江真看了我满脸惊讶的表情，继续道：“我是一个将死之人，我没必要说谎。如果不信，想必你在我家里还能找到那时候我与林雪的情书来往。至于我为什么不介意林海接近我，因为我对他有恨，就像他对我有恨一样。我倒想看看他要对我做什么。”
 #最后找到了，说明一下
 江真不像说谎，突然想到林海有这样一条记录“就让那些犯了错的人一起下地狱，包括我自己”，也许林海在极度自责的情况下才会想与江真同归于尽，这也解释的通为什么林海有与江真同归于尽的想法。
@@ -232,11 +232,11 @@
 慕雪留。
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0ODQ1Njg1NDQsLTY1OTIwNjkwNCwtNz
-gyMDEyMDc2LDE5ODg5MDI2MjIsLTExNDA1NDEyMzUsLTgzMDE1
-OTQxNCwxNDA5OTM4NTM1LDE2MzQyNjU2ODIsLTI1MzU1ODE5NS
-wtMTIxNzE1NDEzMywxNTQyMjY3Nzk3LC00MzgyOTM4NSwxNzY5
-NjIyNDQzLDUwMTQ0NTQzMCw2NDA5MjkyNTksLTE2NDMwNDE1NT
-UsLTEyMTQ2MjE2MDksMTk5MDExMzYzOSwtMjAzOTgwOTA0OCwt
-NDI4NDI1NjM2XX0=
+eyJoaXN0b3J5IjpbMjAxMzY3Mjc3NSwtNjU5MjA2OTA0LC03OD
+IwMTIwNzYsMTk4ODkwMjYyMiwtMTE0MDU0MTIzNSwtODMwMTU5
+NDE0LDE0MDk5Mzg1MzUsMTYzNDI2NTY4MiwtMjUzNTU4MTk1LC
+0xMjE3MTU0MTMzLDE1NDIyNjc3OTcsLTQzODI5Mzg1LDE3Njk2
+MjI0NDMsNTAxNDQ1NDMwLDY0MDkyOTI1OSwtMTY0MzA0MTU1NS
+wtMTIxNDYyMTYwOSwxOTkwMTEzNjM5LC0yMDM5ODA5MDQ4LC00
+Mjg0MjU2MzZdfQ==
 -->
