@@ -188,7 +188,7 @@
 抓捕行动秘密进行的，精神病院很快被一锅断掉了，这件事直接轰动了全国，事情及其恶劣。
 09
 江真坐在审讯室里，憔悴了很多，不像我第一次见他那般意气风发，接受他的毋庸置疑是死刑。“江医生，其实你一开始就知道林海是林雪的父亲吧！”
-江真疑惑的看了看我，随后似有所思，哀叹了一声，“果然，你都已经知道了。没错，我第一次见到他我就知道他是林雪的父亲。”
+江真疑惑地看了看我，随后似有所思，哀叹了一声，“果然，你都已经知道了。没错，我第一次见到他我就知道他是林雪的父亲。”
 “那你为什么还不断和他接触？你不知道他对你有多么的恨？”
 江真笑了笑，随后大声道：“林海就是个无耻的失责的父亲。你们查到的消息是不是都觉得是我害死了林雪。”
 我看向了江真，没有否认，似乎潜意识也是这么觉得，倘若没有他骚扰林雪，也不会有后来的事情。
@@ -231,7 +231,7 @@
 慕雪留。
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTMxNTQ2NjkzOSwyMTQxODQ1Mzc4LC03MT
+eyJoaXN0b3J5IjpbLTcyMTIxMDI2NSwyMTQxODQ1Mzc4LC03MT
 UxNzc5NiwtMTg1MzgwNzQ3MSwtNjU5MjA2OTA0LC03ODIwMTIw
 NzYsMTk4ODkwMjYyMiwtMTE0MDU0MTIzNSwtODMwMTU5NDE0LD
 E0MDk5Mzg1MzUsMTYzNDI2NTY4MiwtMjUzNTU4MTk1LC0xMjE3
