@@ -181,7 +181,7 @@
 看着这一张张照片，我气得咬牙切齿，我死死的攥紧拳头，暗道：“原来我第一次去那家精神病院感到的压抑，并非来自陌生，而是那群病人惊恐的眼神。”
 天使与恶魔有时候会是同一个人。
 08
-第二天上午我拉着大伙开了次紧急会议，梳理我所知道的事情和证据。
+第二天上午我拉着大伙开了次紧急会议，梳理我所知道的事情和证据：
 十二年前，死者的林海的女儿林雪传出和同校一个男生的绯闻，男生因为此事转学，而林雪受到同学的嘲讽跳楼自杀。林海伤痛欲绝，把女儿林雪的死归咎于那个男生，而之后，那个男生似乎人间蒸发了一样。而就在三年前，林海因为轻度抑郁症去了精神病院，恰巧碰见了江真，而林海一眼便认出了江真就是当年那个男生。于是林海心中有了一个计划，他要让江真家破人亡，他暗中查到江真虽未结婚，但其实已有妻女。他便开始放大自己的抑郁症，隔三差五去精神病院找江真治疗，好坐实他有精神病案例。一天下午，林海吃了很多治疗抑郁症的药，开着车子撞向了他早已踩好点的那对母女，但是最后那一刻他迟疑了，也许是内心的那份道德底线触动了他，他想起了他的女儿，也就是那份迟疑，让本应该计划的事情偏离原有轨道，本应该被撞死的母女只是受了伤而已。但是如他的计划一般，他顺利的进了那家精神病院，其中律师慕雪帮助了他，至于慕雪为什么会帮助林海，这一点不得知，林海和慕雪有什么深层关系，这也不得知。进入了精神病院，林海开始准备他的杀人计划，而在这个过程中，林海得知另外一个惊人的秘密，这家精神病院在干着贩卖器官的勾当，而江真也是其中核心人员。于是，林海改变了他的计划，他努力收集着证据，把证据都记录上传到Truth上，带与江真同归于尽之后公诸于世。但是，意外却先来一步，林海意外死在【慕声】手上。
 我把一张张证据图片扔到桌子上，众人看了之后，都唏嘘不已。调查科也已查清江真就是当年林雪案的那个绯闻男生，并且，江真靠父母关系进的这家精神病院。小李也把他调查那对母女的事情说明了，那对母女确实是江真的妻女，而资金来源就是江真，江真这样做，是怕哪一天东窗事发，他的妻女能平安。
 江真和林海的这层关系网，已经彻底清楚了。而现在不清楚的是林海的死因，想必很快就能知道了。
@@ -232,11 +232,11 @@
 慕雪留。
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTY1OTIwNjkwNCwtNzgyMDEyMDc2LDE5OD
-g5MDI2MjIsLTExNDA1NDEyMzUsLTgzMDE1OTQxNCwxNDA5OTM4
-NTM1LDE2MzQyNjU2ODIsLTI1MzU1ODE5NSwtMTIxNzE1NDEzMy
-wxNTQyMjY3Nzk3LC00MzgyOTM4NSwxNzY5NjIyNDQzLDUwMTQ0
-NTQzMCw2NDA5MjkyNTksLTE2NDMwNDE1NTUsLTEyMTQ2MjE2MD
-ksMTk5MDExMzYzOSwtMjAzOTgwOTA0OCwtNDI4NDI1NjM2LC0x
-NTU5Njk1MDk0XX0=
+eyJoaXN0b3J5IjpbLTE0ODQ1Njg1NDQsLTY1OTIwNjkwNCwtNz
+gyMDEyMDc2LDE5ODg5MDI2MjIsLTExNDA1NDEyMzUsLTgzMDE1
+OTQxNCwxNDA5OTM4NTM1LDE2MzQyNjU2ODIsLTI1MzU1ODE5NS
+wtMTIxNzE1NDEzMywxNTQyMjY3Nzk3LC00MzgyOTM4NSwxNzY5
+NjIyNDQzLDUwMTQ0NTQzMCw2NDA5MjkyNTksLTE2NDMwNDE1NT
+UsLTEyMTQ2MjE2MDksMTk5MDExMzYzOSwtMjAzOTgwOTA0OCwt
+NDI4NDI1NjM2XX0=
 -->
