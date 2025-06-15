@@ -217,11 +217,11 @@
 他笑了笑，“陈警官，好久不见。我不会又摊上事了吧？”
 我摇了摇头，毕竟一切都是我的猜测，我没有任何证据，但是我还是想把我的想法与他说，“我想给你讲个故事，关于你的一个故事。”
 “十二年前，有个少年他叫慕涛，在当地的一所高中上学。这个期间，他喜欢上了一个女孩，那个女孩甚至都不知道他叫什么。他就这么喜欢着，有一天他鼓起了勇气给那个女孩写了一封表白的情书，他甚至署名都不敢用真名，他说他叫慕雪。不久之后，他得知那个女孩和其他的一个男生传出绯闻，女孩死了，而那个女孩叫林雪。多年以后，他在Truth上注册了一个账号，叫慕雪，从此之后小有名气。三年前，他认识了林海，林雪的父亲，便为林海定制了一套杀人计划，而要杀之人便是十二年前林雪绯闻男生江真。他与林海约定，这一切与他无关，他将自己抛的干干净净。他之所以帮助林海，是因为他也恨江真，同时他也恨林海，那个间接害死自己女儿的父亲。他们的计划很顺利，两人先后进了同一家精神病院。他同林海一样，得知了精神病院的内幕，这也是林海三年迟迟未动手的原因。等林海想动手杀江真的时候，林海死了。由于江真胡乱说他是当年林雪案造谣者，气急败坏的林海去质问他为什么，但是当时是他另外的人格【慕声】占据了身体。【慕声】失手杀了林海。而只有他自己知道，当时【慕声】与林海扭打的时候，他的潜意识强行占据了身体并杀了林海，事后又将身体还回给【慕声】。他利用了【慕声】。为了弥补他杀人镜头的残忍与【慕声】格格不入，他编了个三只小猪的故事，暗示【慕声】人格其实心中有一个英雄，而那时【慕声】所做所为只不过是被压抑的【慕声】内心爆发而已。【慕声】当时看到勇猛的大哥不过是他在强行占据身体。”
-我一口气把我所想都说了出来。
+我一口气把我所想都说了出来，随即说道：“慕涛。告诉我林海是不是你杀的？”
 慕涛瞪大眼睛看了看我，“我不得不说你的故事很精彩，可惜他只是个故事。”
 我知道他不会承认，毕竟这些想法太匪夷所思，尤其利用人格杀人。
 “陈警官，我快死了，前几天我查出了癌症，是晚期。”慕涛苦笑，“我的后事，你可以来帮我办吗？你知道的，我现在是一个人，我没有什么要求，简简单单的葬了就行。”
-我望向他，原来他那份消瘦是病魔的折磨，那种心酸无无奈瞬间涌上了我的心头，我所纠结的事情已没有任何意义。我点了点头算是答应了他。
+我望向他，原来他那份消瘦是病魔的折磨，那种心酸无奈瞬间涌上了我的心头，我所纠结的事情已没有任何意义。我点了点头算是答应了他。
 
 11
 几天后，我接到一个电话，是一个律师打过来的，律师说慕涛自杀了。慕涛的遗属提到了让我给他办葬礼，律师问我是否愿意。我想起来当初答应过他，便同意了。
@@ -231,11 +231,11 @@
 慕雪留。
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjEyNzIzNzcxNSwtNjU5MjA2OTA0LC03OD
-IwMTIwNzYsMTk4ODkwMjYyMiwtMTE0MDU0MTIzNSwtODMwMTU5
-NDE0LDE0MDk5Mzg1MzUsMTYzNDI2NTY4MiwtMjUzNTU4MTk1LC
-0xMjE3MTU0MTMzLDE1NDIyNjc3OTcsLTQzODI5Mzg1LDE3Njk2
-MjI0NDMsNTAxNDQ1NDMwLDY0MDkyOTI1OSwtMTY0MzA0MTU1NS
-wtMTIxNDYyMTYwOSwxOTkwMTEzNjM5LC0yMDM5ODA5MDQ4LC00
-Mjg0MjU2MzZdfQ==
+eyJoaXN0b3J5IjpbNzQwOTI2MjY5LC02NTkyMDY5MDQsLTc4Mj
+AxMjA3NiwxOTg4OTAyNjIyLC0xMTQwNTQxMjM1LC04MzAxNTk0
+MTQsMTQwOTkzODUzNSwxNjM0MjY1NjgyLC0yNTM1NTgxOTUsLT
+EyMTcxNTQxMzMsMTU0MjI2Nzc5NywtNDM4MjkzODUsMTc2OTYy
+MjQ0Myw1MDE0NDU0MzAsNjQwOTI5MjU5LC0xNjQzMDQxNTU1LC
+0xMjE0NjIxNjA5LDE5OTAxMTM2MzksLTIwMzk4MDkwNDgsLTQy
+ODQyNTYzNl19
 -->
