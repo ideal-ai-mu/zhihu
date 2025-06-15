@@ -102,7 +102,7 @@
 慕涛依旧是那个慕涛，神情自然，似乎知道我要来找他，「陈警官，你想听故事吗？」
 这个人比我想象中的还要聪明，他似乎已经猜到我从江真那里知道的一些信息。目前我还不知道他为何要让我先去找江真，而不是直接告诉我他所知道的事情。
 「该不会是【三只小猪】的故事？」
-慕声点了点道：「看来江真已经跟你讲过了，但我这边有另外一个版本。」
+慕涛点了点道：「看来江真已经跟你讲过了，但我这边有另外一个版本。」
 他果然是知道的，随即我还是把我的疑问说了出来，「你好像故意让我去听了江真说的这个故事，你为什么不直接告诉我。」
 「从我嘴中说出你信几分？那个故事我也听江真跟我说过，但是【慕声】在撒谎。而我要说出来的故事，恐怕和【慕声】所说的不一样，谁的故事更可靠一点还得由陈警官来判断。」
 慕涛所说不无道理，从一个正常人口中得到信息似乎要比从一个精神病人口中得到信息更可靠。
@@ -117,7 +117,7 @@
 这也和江真猜测的第三人格格不入，听了慕涛所讲，我更愿意相信慕涛的故事。
 而【慕声】站在他的角度，他觉得应该有一个勇猛的大哥，但是事实并没有，因此他把自己想象成那个勇猛的大哥，至于勇猛的那个幻想最后随着【慕声】出意外而从他心中消失和他说的大哥再也没回来看来也是一致的。
 这一次杀人难道是【慕声】心中那个勇猛又回来了？我开始对这一切猜测变得头疼，我快发现自己也不正常了。
-「这个故事你跟江真讲过没。」我没有在讲下去，反而看向慕涛问道。
+「这个故事你跟江真讲过没。」我没有再讲下去，反而看向慕涛问道。
 「没有，我不喜欢江真，他不是一个可靠的人。」慕涛坚定道，随即又笑了笑看着我，「陈警官，我在告诉你一个秘密。」
 我把脸凑向了他，「哦？说来听听。」
 「江真是一个坏人。」
@@ -125,7 +125,7 @@
 
 05
 「【慕声】？」
-小李上前按住向我扑过来的慕涛，准确来说是【慕声】，我没想到这时候【慕声】的人格突然出现，着实也下了我一跳。比起慕涛，【慕声】才更像一个患有严重精神病的人。
+小李上前按住向我扑过来的慕涛，准确来说是【慕声】，我没想到这时候【慕声】的人格突然出现，着实也吓了我一跳。比起慕涛，【慕声】才更像一个患有严重精神病的人。
 「【慕声】。」我又叫了一下他，「你冷静一下，我相信你没杀人，我们都相信你。」
 我想让他安静一下。他用疑惑的表情看着我，慢慢开始恢复了安静，颤抖的说道，「警官，你要相信我，他们都在骗你。」
 他用哀求的眼神看着我，那一瞬间我是相信的，可事实又摆在面前，我的内心很矛盾，「【慕声】，你不要怕，我相信你，你跟我说说那天发生了什么事情。」
@@ -232,11 +232,11 @@
 慕雪留。
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQzMTIxNDQxNCwtNzgyMDEyMDc2LDE5OD
-g5MDI2MjIsLTExNDA1NDEyMzUsLTgzMDE1OTQxNCwxNDA5OTM4
-NTM1LDE2MzQyNjU2ODIsLTI1MzU1ODE5NSwtMTIxNzE1NDEzMy
-wxNTQyMjY3Nzk3LC00MzgyOTM4NSwxNzY5NjIyNDQzLDUwMTQ0
-NTQzMCw2NDA5MjkyNTksLTE2NDMwNDE1NTUsLTEyMTQ2MjE2MD
-ksMTk5MDExMzYzOSwtMjAzOTgwOTA0OCwtNDI4NDI1NjM2LC0x
-NTU5Njk1MDk0XX0=
+eyJoaXN0b3J5IjpbNTUyMTI1NjAsLTc4MjAxMjA3NiwxOTg4OT
+AyNjIyLC0xMTQwNTQxMjM1LC04MzAxNTk0MTQsMTQwOTkzODUz
+NSwxNjM0MjY1NjgyLC0yNTM1NTgxOTUsLTEyMTcxNTQxMzMsMT
+U0MjI2Nzc5NywtNDM4MjkzODUsMTc2OTYyMjQ0Myw1MDE0NDU0
+MzAsNjQwOTI5MjU5LC0xNjQzMDQxNTU1LC0xMjE0NjIxNjA5LD
+E5OTAxMTM2MzksLTIwMzk4MDkwNDgsLTQyODQyNTYzNiwtMTU1
+OTY5NTA5NF19
 -->
