@@ -168,7 +168,7 @@
 「你好！」
 「我现在有事不在，并向你推荐了一个我写的帖子。」
 像他这种人难免不喜欢被别人打扰，设置自动回复是很常见的，我不死心，又发了一条信息，仍然是同样的自动回复，反正也没什么特别的事情，索性点开了他推荐的那篇帖子看了看。
-故事讲的是一个父亲为了替女儿报仇的故事。故事中的父亲在一次开车撞死了一对母女，由于查出此人车内有大量精神病药物，在律师M的帮助下成功混进了精神病院手刃了间接害死女儿凶手的医生J，而撞死的母女就是W的妻女。其中的作案手法及其详细，包括这位父亲如何每周去精神病院治疗，如何随身携带药物，如何设计车祸，又如何杀害医生……
+故事讲的是一个父亲为了替女儿报仇的故事。故事中的父亲开车意外撞死了一对母女，由于查出此人车内有大量精神病药物，在律师M的帮助下成功混进了精神病院手刃了间接害死女儿凶手的医生J，而撞死的母女就是W的妻女。其中的作案手法及其详细，包括这位父亲如何每周去精神病院治疗，如何随身携带药物，如何设计车祸，又如何杀害医生……
 我看完之后，不知为何把这位父亲想成了林海，想到这里我瞬间满头大汗。林海就是如那位父亲一样开车撞了人，后因为精神病进了医院，只是并未撞死人。倘若江真就是故事里的医生J，那对母女真的像我们猜测那样是江真的妻女，那林海为女报仇，仇人是江真，江真，林雪。
 我瞬间一下子全明白了，江真就是当年疑似性骚扰林雪的那个男生，而我第一次看他眼熟便是如此，他竟然改名了。
 我立马打电话给小李：“小李，今晚让调查科的人查一查医生江真，以及当年林雪性侵案那个男生是不是现在的江真，明天务必给我结果。”
@@ -232,11 +232,11 @@
 慕雪留。
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTk5ODgxMDMzNSwtNzgyMDEyMDc2LDE5OD
-g5MDI2MjIsLTExNDA1NDEyMzUsLTgzMDE1OTQxNCwxNDA5OTM4
-NTM1LDE2MzQyNjU2ODIsLTI1MzU1ODE5NSwtMTIxNzE1NDEzMy
-wxNTQyMjY3Nzk3LC00MzgyOTM4NSwxNzY5NjIyNDQzLDUwMTQ0
-NTQzMCw2NDA5MjkyNTksLTE2NDMwNDE1NTUsLTEyMTQ2MjE2MD
-ksMTk5MDExMzYzOSwtMjAzOTgwOTA0OCwtNDI4NDI1NjM2LC0x
-NTU5Njk1MDk0XX0=
+eyJoaXN0b3J5IjpbLTE3ODI2NTE1MTUsLTc4MjAxMjA3NiwxOT
+g4OTAyNjIyLC0xMTQwNTQxMjM1LC04MzAxNTk0MTQsMTQwOTkz
+ODUzNSwxNjM0MjY1NjgyLC0yNTM1NTgxOTUsLTEyMTcxNTQxMz
+MsMTU0MjI2Nzc5NywtNDM4MjkzODUsMTc2OTYyMjQ0Myw1MDE0
+NDU0MzAsNjQwOTI5MjU5LC0xNjQzMDQxNTU1LC0xMjE0NjIxNj
+A5LDE5OTAxMTM2MzksLTIwMzk4MDkwNDgsLTQyODQyNTYzNiwt
+MTU1OTY5NTA5NF19
 -->
