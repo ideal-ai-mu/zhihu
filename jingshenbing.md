@@ -173,7 +173,7 @@
 我瞬间一下子全明白了，江真就是当年疑似性骚扰林雪的那个男生，而我第一次看他眼熟便是如此，他竟然改名了。
 我立马打电话给小李：“小李，今晚让调查科的人查一查医生江真，以及当年林雪性侵案那个男生是不是现在的江真，明天务必给我结果。”
 做完这一切之后，我在慕雪的聊天框里发了一条消息，“你认识林海吗？”
-我没在收到慕雪的自动回复，而是等了许久，他回道：“这是林海的Truth账号和密码，你看完之后就都明白了。至于我只不过是曾经帮助过林海的M律师，一个想把他从深渊里拉出来的人。前两天我得知他离世，便根据他之前的遗愿就是把他的Truth账号交给第一个想我问起他的人。”
+我没再收到慕雪的自动回复，而是等了许久，他回道：“这是林海的Truth账号和密码，你看完之后就都明白了。至于我只不过是曾经帮助过林海的M律师，一个想把他从深渊里拉出来的人。前两天我得知他离世，便根据他之前的遗愿就是把他的Truth账号交给第一个向我问起他的人。”
 果然如我猜测那般，这一切并非偶然，原来这个帖子就是慕雪依据林海的事迹写的，只是预先设计好的结局并未如林海所愿。慕雪再也没说其他的东西，可能是怕惹上不必要的麻烦。
 我迫不及待的登录了林海的Truth，看着每一条林海的记录。
 当我看到林海写到，“我终于找到当年那个害死你的始作俑者，没想到他竟然当了医生，还改名叫江真。雪儿，这一次我已一定不会放过他。”上面还附着一张江真的照片，看着这张照片，算是我之前的猜想都已经得到证实。
@@ -232,11 +232,11 @@
 慕雪留。
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3ODI2NTE1MTUsLTc4MjAxMjA3NiwxOT
-g4OTAyNjIyLC0xMTQwNTQxMjM1LC04MzAxNTk0MTQsMTQwOTkz
-ODUzNSwxNjM0MjY1NjgyLC0yNTM1NTgxOTUsLTEyMTcxNTQxMz
-MsMTU0MjI2Nzc5NywtNDM4MjkzODUsMTc2OTYyMjQ0Myw1MDE0
-NDU0MzAsNjQwOTI5MjU5LC0xNjQzMDQxNTU1LC0xMjE0NjIxNj
-A5LDE5OTAxMTM2MzksLTIwMzk4MDkwNDgsLTQyODQyNTYzNiwt
-MTU1OTY5NTA5NF19
+eyJoaXN0b3J5IjpbLTY1OTIwNjkwNCwtNzgyMDEyMDc2LDE5OD
+g5MDI2MjIsLTExNDA1NDEyMzUsLTgzMDE1OTQxNCwxNDA5OTM4
+NTM1LDE2MzQyNjU2ODIsLTI1MzU1ODE5NSwtMTIxNzE1NDEzMy
+wxNTQyMjY3Nzk3LC00MzgyOTM4NSwxNzY5NjIyNDQzLDUwMTQ0
+NTQzMCw2NDA5MjkyNTksLTE2NDMwNDE1NTUsLTEyMTQ2MjE2MD
+ksMTk5MDExMzYzOSwtMjAzOTgwOTA0OCwtNDI4NDI1NjM2LC0x
+NTU5Njk1MDk0XX0=
 -->
