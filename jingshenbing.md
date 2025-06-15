@@ -29,7 +29,7 @@
 我缓缓地走向他，解开了束缚衣的带子，并递给他一瓶水。慕涛接过水，目光在我身上扫了一眼，随即微微点头，低声道谢：「谢谢你，陈警官。」
 他大口喝水时，眼神依旧透着一丝警觉，然后，他指了指我胸前的警牌，似乎是说不必惊讶。
 他的头发很乱，脸色有点惨白，看得出他受了很大的精神折磨。但是他那一双眼睛却熠熠发光，又好像黑洞一般，深邃又神秘，似乎藏着无尽的秘密，给我的第一直觉就是他身上藏着太多秘密。
-「有人说眼睛是情感和心灵的窗口，可以传递一个人的心声。不知道陈警官从我的眼神读出我怎样的心声？」他异常平静的看着我，此时此刻，他哪里还是一位精神病患者。
+「有人说眼睛是情感和心灵的窗口，可以传递一个人的心声。不知道陈警官从我的眼神读出我怎样的心声？」他异常平静的看着我，此时此刻，他哪里还***像***是一位精神病患者。
 我也知道，倘若我把他当做精神病患者或是嫌疑犯来看，我便已经 输了，「人不是你杀的。」
 他笑了笑，带着几分诡异，「可是所有人都说人是我杀的。」
 我没有动摇，直视着他的眼睛，语气笃定：「至少，不是现在的你所为。」
@@ -231,11 +231,11 @@
 慕雪留。
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4NTM4MDc0NzEsLTY1OTIwNjkwNCwtNz
-gyMDEyMDc2LDE5ODg5MDI2MjIsLTExNDA1NDEyMzUsLTgzMDE1
-OTQxNCwxNDA5OTM4NTM1LDE2MzQyNjU2ODIsLTI1MzU1ODE5NS
-wtMTIxNzE1NDEzMywxNTQyMjY3Nzk3LC00MzgyOTM4NSwxNzY5
-NjIyNDQzLDUwMTQ0NTQzMCw2NDA5MjkyNTksLTE2NDMwNDE1NT
-UsLTEyMTQ2MjE2MDksMTk5MDExMzYzOSwtMjAzOTgwOTA0OCwt
-NDI4NDI1NjM2XX0=
+eyJoaXN0b3J5IjpbLTcxNTE3Nzk2LC0xODUzODA3NDcxLC02NT
+kyMDY5MDQsLTc4MjAxMjA3NiwxOTg4OTAyNjIyLC0xMTQwNTQx
+MjM1LC04MzAxNTk0MTQsMTQwOTkzODUzNSwxNjM0MjY1NjgyLC
+0yNTM1NTgxOTUsLTEyMTcxNTQxMzMsMTU0MjI2Nzc5NywtNDM4
+MjkzODUsMTc2OTYyMjQ0Myw1MDE0NDU0MzAsNjQwOTI5MjU5LC
+0xNjQzMDQxNTU1LC0xMjE0NjIxNjA5LDE5OTAxMTM2MzksLTIw
+Mzk4MDkwNDhdfQ==
 -->
