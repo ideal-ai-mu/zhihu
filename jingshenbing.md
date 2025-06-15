@@ -160,7 +160,7 @@
 「更加巧合的是被撞的母女，妇人并未登记过结婚，而他们的经济来源是这家精神病院，打款是以精神病院的名义打的款，周期是每半年一次，以慈善的名义捐赠。我猜……」
 听小李的陈述，事情开始变得明了，「实际打款的幕后人是江真，而那母女不过是江真的情人和私生子，你是想说这吧。」
 小李点了点头。如此，江真的杀人动机就有了，但这似乎也不足以让江真动了杀人念头。但林海是他的病人，这未免又有点点巧合，我总觉得好像丢失了重要一环，真正把林海和江真串起来那根线。
-「直到目前为止，依然是我们的猜测，只不过我们的这些猜测有了一些根据。人到底不是不是江真设计杀害也不好说，除非我们能找到把林海和江真串起来的那根线，否则我们的猜测也太不堪一击了。」我继续说道，「明天你带人去找一下那对母女，我要你把他们和江真的关系做实，查出是谁在资助那对母女，到底是不是江真。」
+「直到目前为止，依然是我们的猜测，只不过我们的这些猜测有了一些根据。人到底不是不是江真设计杀害也不好说，除非我们能找到把林海和江真串起来的那根线，否则我们的猜测也太不堪一击了。」我继续说道，「明天你带人去找一下那对母女，我要你把他们和江真的关系坐实，查出是谁在资助那对母女，到底是不是江真。」
 
 07
 累了一天，我躺在床上，点开了手机上一个叫做Truth的APP。Truth是推理爱好者交流的一个平台，注册地在国外，上面的人都是匿名的，不仅如此，连注册的IP地址都是虚拟的，无法得知与你聊天的人的任何真实信息，即便是我们也无法查到。
@@ -232,11 +232,11 @@
 慕雪留。
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTk4ODkwMjYyMiwtMTE0MDU0MTIzNSwtOD
-MwMTU5NDE0LDE0MDk5Mzg1MzUsMTYzNDI2NTY4MiwtMjUzNTU4
-MTk1LC0xMjE3MTU0MTMzLDE1NDIyNjc3OTcsLTQzODI5Mzg1LD
-E3Njk2MjI0NDMsNTAxNDQ1NDMwLDY0MDkyOTI1OSwtMTY0MzA0
-MTU1NSwtMTIxNDYyMTYwOSwxOTkwMTEzNjM5LC0yMDM5ODA5MD
-Q4LC00Mjg0MjU2MzYsLTE1NTk2OTUwOTQsLTczODUzODU2OSw2
-MjgyOTI5MF19
+eyJoaXN0b3J5IjpbLTc4MjAxMjA3NiwxOTg4OTAyNjIyLC0xMT
+QwNTQxMjM1LC04MzAxNTk0MTQsMTQwOTkzODUzNSwxNjM0MjY1
+NjgyLC0yNTM1NTgxOTUsLTEyMTcxNTQxMzMsMTU0MjI2Nzc5Ny
+wtNDM4MjkzODUsMTc2OTYyMjQ0Myw1MDE0NDU0MzAsNjQwOTI5
+MjU5LC0xNjQzMDQxNTU1LC0xMjE0NjIxNjA5LDE5OTAxMTM2Mz
+ksLTIwMzk4MDkwNDgsLTQyODQyNTYzNiwtMTU1OTY5NTA5NCwt
+NzM4NTM4NTY5XX0=
 -->
