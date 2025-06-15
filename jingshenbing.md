@@ -1,4 +1,4 @@
-
+疯墙三重奏						
 疯墙之内。
 我很难判断一位人格分裂患者究竟是在撒谎还是在掩饰自己的罪行。
 这是我第一次处理精神病案件，已经让我感到匪夷所思。
@@ -8,12 +8,12 @@
 「他就是慕涛？」我盯着屏幕，心中充满了复杂的情绪。这是我从警生涯开始，第一次面对精神病案件。
 「是的。」同事低声回应，「监控显示，案发时他用刀连续刺了受害者至少二十次。」
 屏幕上，慕涛的眼神空洞而呆滞，动作机械得像个被人操控的木偶。他的嘴角不时地喃喃自语，声音低得监控录音都无法捕捉清楚。即使隔着屏幕，我依然能感受到那种几乎让人窒息的压迫感。
-我盯着画面中的他，手心已被汗水打湿。这是我第一次直面一个精神病患者的杀人现场，心中却涌起一种无法言喻的矛盾感——他看起来并不像一个心怀恶意的杀手，反倒像是个陷入泥沼的无辜者。
+这是我第一次直面一个精神病患者的杀人现场，心中却涌起一种无法言喻的矛盾感——他看起来并不像一个心怀恶意的杀手，反倒像是个陷入泥沼的无辜者。
 「慕涛有精神分裂症，他自己都不记得发生了什么。」同事继续说道，「但证据确凿，他杀了人。死者是另一名精神病患者——林海。可是他的行为有些反常。」
 反常？这两个字像针一样刺中了我的思绪。我翻阅着案卷，奇怪的是，记录中并没有任何一条提到慕涛曾有暴力倾向，甚至有的笔录还说他是个很温和的人，从未展现过任何暴力行为。
 「你是说，他的杀人行为过于暴力？」我问道。
 同事点了点头，补充道：「不仅如此，我们还询问过治疗他的医师——江真。根据江真的说法，慕涛只出现过两种人格，一个是怯懦孤僻的人格，另一个是平静随和的人格。从未出现过这种暴力人格。」
-同事说完后，播放了另外两段视频。直到今天我才从外地回来，才得知这起案件的一些情况。
+同事说完后，播放了另外两段视频。
 我盯着屏幕中的两段画面，心中渐生疑虑。一段画面里，慕涛独自待在角落，面对其他精神病人的接近，他立刻怯弱地躲开，不愿与人交流；另一段画面里，慕涛却如同正常人一样，和大家一起吃饭，言笑晏晏，完全不像一个精神病患者。
 「这案子有蹊跷。」我抬起头，目光坚定，「我要去见他。」
 同事愣了一下，随即摇了摇头：「他现在状态很差，恐怕问不出什么。」
@@ -233,11 +233,11 @@
 慕雪留。
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTQwOTkzODUzNSwxNjM0MjY1NjgyLC0yNT
-M1NTgxOTUsLTEyMTcxNTQxMzMsMTU0MjI2Nzc5NywtNDM4Mjkz
-ODUsMTc2OTYyMjQ0Myw1MDE0NDU0MzAsNjQwOTI5MjU5LC0xNj
-QzMDQxNTU1LC0xMjE0NjIxNjA5LDE5OTAxMTM2MzksLTIwMzk4
-MDkwNDgsLTQyODQyNTYzNiwtMTU1OTY5NTA5NCwtNzM4NTM4NT
-Y5LDYyODI5MjkwLDE4Njk4OTgyODIsLTkxODM0MTQ1NywtMTM2
-MTkyNzEyXX0=
+eyJoaXN0b3J5IjpbMTc4NDc1MDc5MCwxNDA5OTM4NTM1LDE2Mz
+QyNjU2ODIsLTI1MzU1ODE5NSwtMTIxNzE1NDEzMywxNTQyMjY3
+Nzk3LC00MzgyOTM4NSwxNzY5NjIyNDQzLDUwMTQ0NTQzMCw2ND
+A5MjkyNTksLTE2NDMwNDE1NTUsLTEyMTQ2MjE2MDksMTk5MDEx
+MzYzOSwtMjAzOTgwOTA0OCwtNDI4NDI1NjM2LC0xNTU5Njk1MD
+k0LC03Mzg1Mzg1NjksNjI4MjkyOTAsMTg2OTg5ODI4MiwtOTE4
+MzQxNDU3XX0=
 -->
